@@ -1326,7 +1326,7 @@ Jingga Maharani tidak lagi mengirim pesan. Tidak ada “Mas Biru”, tidak ada �
 
 Jakarta malam itu tidak benar-benar memberi pilihan. Hujan turun deras, seolah langit sedang menumpahkan seluruh beban yang ditahannya sejak siang. Lampu-lampu kota yang biasanya megah kini memantul di aspal Sudirman sebagai serpihan cahaya yang pecah, tidak utuh, dan buram oleh kabut tipis dari uap knalpot. Biru Aji Pratama berdiri mematung di halte kecil yang sesak. Jaketnya sudah basah sebagian, namun ia tidak bergeming. Pikirannya buntu, lebih rumit dari barisan dataset riset yang seharian tadi ia olah di depan layar komputer kantor.
 
-Ponselnya terasa berat di saku. Tidak ada notifikasi baru sejak pesan terakhir dari Jingga Maharani yang masuk dua hari lalu: “Aku di Jakarta sekarang, tapi aku nggak mau ketemu dulu.” Kalimat itu menggantung di kepalanya seperti pintu yang setengah terbuka namun dipasangi tanda dilarang masuk. Jakarta, yang selama ini terasa asing dan menelan banyak hal, mendadak terasa semakin sempit karena ia tahu Jingga berada di koordinat yang sama, namun dalam jangkauan yang mustahil.
+Ponselnya terasa berat di saku. Tidak ada notifikasi baru sejak pesan terakhir dari Jingga Maharani yang masuk dua hari lalu: “Aku di Jakarta sekarang, tapi aku nggak mau ketemu dulu.” Kalimat itu menggantung di kepalanya seperti pintu yang setengah terbuka namun dipasangi tanda dilarang masuk. Jakarta, yang selama ini terasa asing dan menelan banyak hal, mendadak terasa semakin sempit karena ia tahu Jingga berada di koordinat yang sama, namun dalam jangkauan yang mustahil didekati.
 
 Biru duduk di bangku halte yang lembab, menunduk sambil mengatur nafas yang sesak oleh polusi dan sisa-sisa kenangan Bogor. Dan di saat itulah, keajaiban yang menyakitkan itu terjadi. Di seberang jalan, di bawah payung hitam kecil, ia melihat sosok yang membeku di tengah arus orang-orang yang bergegas menuju stasiun atau halte busway.
 
@@ -1334,7 +1334,7 @@ Jingga.
 
 Ia berdiri diam di trotoar yang riuh. Jingga terlihat sangat berbeda dari mahasiswi Matematika yang dulu sering ia temui di bawah pohon kapas IPB. Hijab warna lembutnya membingkai wajah yang kini tampak jauh lebih dewasa, namun juga lebih tertutup. Tidak ada lagi binar "berisik" atau tawa lepas yang dulu sering memecah sunyi di kantin IPB Baranangsiang. Jingga hanya berdiri di sana, mematung, seolah sedang memastikan bahwa laki-laki berjaket basah di seberang jalan itu benar-benar nyata.
 
-Beberapa detik mereka hanya saling tatap dari kejauhan, terhalang oleh lampu kendaraan yang melintas cepat, tirai hujan, dan kebisingan kota yang tidak pernah tidur. Biru bangkit perlahan. Rasa dingin dari jaketnya yang kini basah sepenuhnya tidak lagi ia rasakan. Fokusnya terkunci. Lampu lalu lintas berganti merah. Arus mobil berhenti dengan derit rem yang sinkron. Ada jeda kecil di antara dua arus jalan Sudirman, sebuah ruang sempit yang tidak pernah mereka rencanakan dalam hidup mereka pasca-wisuda.
+Beberapa detik mereka hanya saling tatap dari kejauhan, terhalang oleh lampu kendaraan yang melintas cepat, tirai hujan, dan kebisingan kota yang tidak pernah tidur. Biru bangkit perlahan. Rasa dingin dari jaketnya yang kini basah sepenuhnya tidak lagi ia rasakan. Fokusnya terkunci. Lampu lalu lintas berganti merah. Arus mobil berhenti dengan suara derit rem yang sinkron. Ada jeda kecil di antara dua arus jalan Sudirman, sebuah ruang sempit yang tidak pernah mereka rencanakan dalam hidup mereka pasca-wisuda.
 
 Jingga melangkah pelan menyeberang. Biru juga melangkah dari arah berlawanan. Mereka bertemu tepat di tengah garis-garis putih zebra cross yang basah. Tidak ada pelukan, tidak ada senyum hangat; hanya jarak satu langkah yang terasa seperti jurang yang terlalu lama tidak dijembatani.
 
@@ -1344,17 +1344,15 @@ Jingga melangkah pelan menyeberang. Biru juga melangkah dari arah berlawanan. Me
 
 “Mas Biru… Aku nggak mau cerita dulu,” lanjut Jingga sebelum Biru sempat menyusun kalimat penjelasan. Biru hanya bisa mengangguk pelan, menyadari ada dinding transparan namun kokoh yang sedang dijaga Jingga di sana.
 
-Jingga menatap mata Biru, mencari sesuatu yang mungkin sudah hilang. “Aku cuma mau pastiin… Kalau kita ketemu lagi… kamu masih tahu cara jadi kamu yang dulu nggak?” Pertanyaan itu tidak terdengar seperti rasa ingin tahu biasa, melainkan ketakutan yang tidak berani disebut nama aslinya—ketakutan bahwa Bogor, Jakarta, dan semua diamnya Biru telah benar-benar mengubah segalanya.
+Jingga menatap mata Biru, mencari sesuatu yang mungkin sudah hilang. “Aku cuma mau pastiin… Kalau kita ketemu lagi… Kamu masih tahu cara jadi kamu yang dulu nggak?” Pertanyaan itu tidak terdengar seperti rasa ingin tahu biasa, melainkan ketakutan yang tidak berani disebut nama aslinya—ketakutan bahwa Bogor, Jakarta, dan semua diamnya Biru telah benar-benar mengubah segalanya.
 
-Biru terdiam lama. Hujan jatuh di antara mereka tanpa permisi, membasahi sepatu dan ujung celana mereka. Di tengah jalan Sudirman itu, Biru menyadari sebuah kebenaran pahit: di Bogor ia kehilangan arah, di Jakarta ia kehilangan waktu, dan di antara keduanya, Jingga telah kehilangan kepastian. Ia teringat bagaimana di masa kuliah dulu ia sering memantau Jingga dari jauh di departemen Matematika, hanya untuk memastikan keberadaannya tanpa berani mendekat. Kini, saat jarak hanya satu langkah, ia tetap merasa sejauh ribuan kilometer.
-
-Kecemburuan subtil yang dulu ia rasakan terhadap Raka di Bogor kini terasa tidak relevan dibandingkan rasa bersalah yang menyesakkan. Ia masih menyimpan surat dari Larasati di sakunya—beban massa yang terus mengganggu gravitasinya. Biru merasa seperti penipu; ia menjelaskan rumus kepastian kepada orang lain, sementara hidupnya sendiri adalah laboratorium kekacauan.
+Biru terdiam lama. Hujan jatuh di antara mereka tanpa permisi, membasahi sepatu dan ujung celana mereka. Di tengah jalan Sudirman itu, Biru menyadari sebuah kebenaran pahit: di Bogor ia kehilangan arah, di Jakarta ia kehilangan waktu, dan di antara keduanya, Jingga telah kehilangan kepastian. Ia teringat bagaimana di masa kuliah dulu ia sering memantau Jingga dari jauh di departemen Matematika, hanya untuk memastikan keberadaannya tanpa berani mendekat. Kini, saat jarak hanya satu langkah, ia tetap merasa berjarak sejauh ribuan kilometer.
 
 Hening kembali turun, lebih berat dari hujan Jakarta. Jingga mundur setengah langkah, menarik kembali dunianya ke bawah payung hitam itu. “Aku harus pergi. Ada janji pertemuan proyek.”
 
 Biru mengangguk kaku. Ia tidak menahan, tidak juga mengejar. Dan itu justru yang paling menyakitkan bagi mereka berdua. Jingga berbalik, payung hitam itu bergerak menjauh, menyatu dengan lautan payung dan lampu kota yang mulai menyala di sepanjang koridor Sudirman.
 
-Biru tetap berdiri di tengah jalan itu lebih lama dari yang seharusnya, bahkan ketika lampu lalu lintas kembali hijau dan klakson mobil mulai memprotes keberadaannya. Ia menyadari satu hal sederhana: kadang pertemuan bukan cara untuk kembali mendekat, tapi cara paling tenang untuk memastikan bahwa dua orang yang pernah saling mengenal sedang belajar cara untuk benar-benar melepaskan satu sama lain. Di bawah hujan Jakarta yang dingin, Biru akhirnya mengerti bahwa kesunyian di sini tidak seperti di Bogor—di sini, sunyi terasa seperti kebisingan yang sengaja tidak diucapkan
+Biru tetap berdiri di tengah jalan itu lebih lama dari yang seharusnya, bahkan ketika lampu lalu lintas kembali hijau dan klakson mobil mulai memprotes keberadaannya. Ia menyadari satu hal sederhana: kadang pertemuan bukan cara untuk kembali mendekat, tapi cara paling tenang untuk memastikan bahwa dua orang yang pernah saling mengenal sedang belajar cara untuk benar-benar melepaskan satu sama lain. Di bawah hujan Jakarta yang dingin, Biru akhirnya mengerti bahwa kesunyian di sini tidak seperti di Bogor—di sini, sunyi terasa seperti kebisingan yang sengaja tidak diucapkan.
 
 #
 
@@ -1364,15 +1362,15 @@ Jakarta tetap berjalan seperti biasa, seolah tidak peduli ada yang baru saja run
 
 Ponsel di saku jaketnya yang basah bergetar pendek. Tanpa nama, hanya satu baris pesan singkat dari Jingga: “Jangan cari aku dulu”. Biru menatap layar yang bercahaya itu dalam waktu yang lama, membiarkan butiran air hujan jatuh di atas permukaannya. Tidak ada balasan yang ia ketik, tidak ada jari yang bergerak, hingga layar itu padam dengan sendirinya. Ia merasa pesan itu bukan sekadar permintaan privasi, melainkan sebuah peringatan keras bahwa batas yang ditarik Jingga di halte Bogor dulu kini telah menjadi tembok yang permanen.
 
-Ia duduk kembali di bangku halte yang lembab, merasakan tangannya mulai mendingin. Di dalam kepalanya, ingatan-ingatan masa kuliah mulai bercampur menjadi satu simfoni kekacauan: ritme hujan di Bogor, aroma bubur ayam di depan gerbang kampus, suara klakson angkot biru jurusan Terminal Bubulak, hingga heningnya mushola kecil di belakang gedung fakultas. Suara Jingga yang pernah berkata, “kamu nggak di sini sepenuhnya,” kini bergema lebih keras daripada deru mesin bus TransJakarta yang lewat di depannya. Dan di atas segalanya, ada satu nama yang tetap berdiri kokoh, tidak pernah benar-benar selesai ia pahami: Larasati Nirmala. Semua itu bukan lagi masa lalu yang tersimpan rapi, melainkan tumpukan persoalan yang tak kunjung selesai ia tutup.
+Ia duduk kembali di bangku halte yang lembab, merasakan tangannya mulai mendingin. Di dalam kepalanya, ingatan-ingatan masa kuliah mulai bercampur menjadi satu simfoni kekacauan: ritme hujan di Bogor, aroma bubur ayam di depan gerbang kampus, suara klakson angkot biru jurusan Terminal Bubulak, hingga heningnya mushola kecil di belakang gedung fakultas. Suara Jingga yang pernah berkata, “kamu nggak lagi di sini sepenuhnya,” kini bergema lebih keras daripada deru mesin bus TransJakarta yang lewat di depannya. Dan di atas segalanya, ada satu nama yang tetap berdiri kokoh, tidak pernah benar-benar selesai ia pahami: Larasati Nirmala. Semua itu bukan lagi masa lalu yang tersimpan rapi, melainkan tumpukan persoalan yang tak kunjung selesai ia tutup.
 
 “...aku sebenarnya lagi di mana?” Biru berbisik pelan, suaranya nyaris hilang ditelan bisingnya Jakarta. Pertanyaan itu menggantung tanpa jawaban.
 
-Malam itu, Biru tidak sanggup pulang langsung ke kontrakannya yang sempit. Ia melangkah menuju stasiun, lalu naik KRL tanpa tujuan yang jelas. Gerbong kereta yang setengah kosong itu terasa terlalu terang dengan lampu putihnya, sangat kontras dengan pikirannya yang ingin menenggelamkan diri dalam kegelapan. Ia duduk di dekat jendela, melihat siluet gedung-gedung Jakarta yang lewat seperti kilasan data yang tidak bermakna. Stasiun demi stasiun dilalui, nama demi nama tempat yang asing bagi hatinya, semuanya lewat tanpa ada yang ia simpan dalam ingatan.
+Malam itu, Biru tidak sanggup pulang langsung ke kontrakannya yang sempit di Tanahabang. Ia melangkah menuju stasiun, lalu naik KRL tanpa tujuan yang jelas. Gerbong kereta yang setengah kosong itu terasa terlalu terang dengan lampu putihnya, sangat kontras dengan pikirannya yang ingin menenggelamkan diri dalam kegelapan. Ia duduk di dekat jendela, melihat siluet gedung-gedung Jakarta yang lewat seperti kilasan data yang tidak bermakna. Stasiun demi stasiun dilalui, nama demi nama tempat yang asing bagi hatinya, semuanya lewat tanpa ada yang ia simpan dalam ingatan.
 
 Di satu titik, Biru memutuskan untuk turun—bukan karena ia telah sampai di tujuannya, melainkan karena tubuhnya sudah berhenti memiliki keinginan untuk melanjutkan perjalanan. Langit masih menumpahkan air. Lampu stasiun yang basah memantulkan cahaya kuning di atas rel, tampak seperti garis-garis yang tidak rapi dan saling bersinggungan. Biru berjalan pelan di peron yang sunyi, langkahnya berat, seolah ia baru saja menyadari bahwa ia sudah lama berhenti mengejar apa pun.
 
-Dan di saat kesunyian itu memuncak, ingatan tentang Bogor datang tanpa diundang. Ia teringat berdiri di depan mushola kampus bersama Jingga. Kalimat yang dulu terdengar sederhana namun sekarang terasa sangat tajam kembali muncul: “Kalau kamu belum selesai sama dirimu sendiri… jangan mulai cerita baru”. Biru memejamkan mata, namun kali ini kalimat itu terasa seperti nubuat yang terlambat ia pahami.
+Dan di saat kesunyian itu memuncak, ingatan tentang Bogor datang tanpa diundang. Ia teringat berdiri di depan mushola kampus bersama Jingga. Kalimat yang dulu terdengar sederhana namun sekarang terasa sangat tajam kembali muncul: “Kalau kamu belum selesai sama dirimu sendiri… jangan memulai cerita baru”. Biru memejamkan mata, namun kali ini kalimat itu terasa seperti nubuat yang terlambat ia pahami.
 
 Ponselnya bergetar lagi. Getaran kedua malam itu membawa pesan dari nomor lama yang sangat ia hafal di luar kepala: Larasati Nirmala.“Ru…”
 
@@ -1388,7 +1386,7 @@ Jakarta, dengan segala kebisingannya, ternyata hanyalah cara lain bagi Biru untu
 
 # **25 — Dua Nama di Satu Malam**
 
-Jakarta malam itu terasa lebih sempit dari biasanya. Bukan karena gedung-gedung pencakar langit di kawasan Sudirman yang seolah mendekat, melainkan karena isi kepala Biru Aji Pratama yang terlalu penuh untuk satu tubuh. Ia akhirnya pulang ke kontrakan kecilnya di bilangan Jakarta Selatan, tempat di mana dinding-dindingnya seolah ikut menyimpan sisa-sisa kegelisahannya. Jaketnya masih basah setengah, namun ia tidak langsung menggantinya. Rasa dingin dari kain yang menempel di kulitnya seolah menjadi pengingat nyata atas pertemuannya dengan Jingga di bawah hujan Sudirman tadi sore.
+Jakarta malam itu terasa lebih sempit dari biasanya. Bukan karena gedung-gedung pencakar langit di kawasan Sudirman yang seolah mendekat, melainkan karena isi kepala Biru Aji Pratama yang terlalu penuh untuk satu tubuh. Ia akhirnya pulang ke kontrakan kecilnya di bilangan Jakarta Pusat, tempat di mana dinding-dindingnya seolah ikut menyimpan sisa-sisa kegelisahannya. Jaketnya masih basah setengah, namun ia tidak langsung menggantinya. Rasa dingin dari kain yang menempel di kulitnya seolah menjadi pengingat nyata atas pertemuannya dengan Jingga di bawah hujan Sudirman tadi sore.
 
 Di lantai kamar yang hanya beralas karpet tipis, ia duduk bersandar pada sisi ranjang. Ponsel di tangan. Layar menyala, memantulkan wajahnya yang tampak jauh lebih lelah dari biasanya, lalu padam kembali dalam hitungan detik. Ia melakukan gerakan itu berulang kali: menyalakan dan memadamkan layar. Dua nama ada di sana, di daftar percakapan teratasnya. Dua nama yang kini terasa seperti dua pintu yang tidak bisa ia sentuh secara bersamaan.
 
@@ -1396,17 +1394,17 @@ Di lantai kamar yang hanya beralas karpet tipis, ia duduk bersandar pada sisi ra
 
 – Jingga Maharani
 
-Ada jeda yang sangat lama sebelum ia memutuskan untuk membuka apa pun. Ia merasa seperti sedang berdiri di depan sebuah laboratorium fisika yang sedang mengalami kegagalan sistem; setiap langkah yang ia ambil untuk memperbaiki keadaan justru menciptakan variabel kesalahan baru. Akhirnya, ia membuka percakapan dengan Jingga terlebih dahulu. Tidak ada pesan baru setelah kalimat terakhir yang dikirim Jingga dua hari lalu: “Jangan cari aku dulu”.
+Ada jeda yang sangat lama sebelum ia memutuskan untuk membuka apa pun. Ia merasa seperti sedang berdiri di depan sebuah laboratorium fisika yang sedang mengalami kegagalan sistem; setiap langkah yang ia ambil untuk memperbaiki keadaan justru menciptakan variabel kesalahan baru. Akhirnya, ia memilih membuka kembali percakapan terakhir dengan Jingga terlebih dahulu. Tidak ada pesan baru setelah kalimat terakhir yang dikirim Jingga dua hari lalu: “Jangan cari aku dulu”.
 
-Malam ini, di bawah deretan kata-kata itu, Biru baru menyadari satu hal kecil yang sebelumnya luput dari perhatiannya. Status terakhir Jingga tidak menunjukkan tanda-tanda “online” sejak ia mengirim pesan tersebut. Seolah Jingga memang sudah memutuskan untuk menjauh secara sistematis, bahkan sebelum ia melangkah pergi di bawah payung hitam tadi sore. Biru menatap layar itu lama sekali, jempolnya mengambang di atas papan ketik, namun tidak ada satu huruf pun yang berani ia ketikkan.
+Malam ini, di bawah deretan kata-kata itu, Biru baru menyadari satu hal kecil yang sebelumnya luput dari perhatiannya. Status terakhir Jingga tidak menunjukkan tanda-tanda “online” sejak ia mengirim pesan tersebut. Seolah Jingga memang sudah memutuskan untuk menjauh secara sistematis, bahkan sebelum ia melangkah pergi di bawah payung hitam kemarin sore. Biru menatap layar itu lama sekali, jempolnya mengambang di atas papan ketik, namun tidak ada satu huruf pun yang berani ia ketikkan.
 
 Ia kemudian berpindah. Membuka percakapan dengan Larasati.
 
 “Ru… kamu masih di Jakarta?”.
 
-Satu kalimat sederhana. Tapi bagi Biru, kalimat itu terasa seperti membuka pintu tua yang enggan ia sentuh karena takut akan debu masa lalu yang menyesakkan. Di bawahnya, ada satu pesan lama dari Laras yang baru benar-benar ia resapi maknanya malam ini: “Aku di sini kalau kamu butuh teman”. Laras selalu menjadi pelabuhan yang tenang, sebuah konstanta dalam hidupnya yang penuh dengan "asumsi" dan "kurang lebih". Namun, justru ketenangan Laras lah yang membuat rasa bersalah Biru semakin dalam.
+Satu kalimat sederhana. Tapi bagi Biru, kalimat itu terasa seperti membuka pintu tua yang enggan ia sentuh karena takut akan debu masa lalu yang menyesakkan. Di bawahnya, ada satu pesan lama dari Laras yang baru benar-benar ia resapi maknanya malam ini: “Aku di sini kalau kamu butuh teman berbagi”. Laras selalu menjadi pelabuhan yang tenang, sebuah konstanta dalam hidupnya yang penuh dengan "asumsi" dan "kurang lebih". Namun, justru ketenangan Laras lah yang membuat rasa bersalah Biru semakin dalam.
 
-Biru menghela nafas pelan. Jari-jarinya sempat mengetik: “Aku di Jakarta.” Berhenti. Hapus. Ia mencoba lagi: “Aku sebenernya lagi capek.” Berhenti lagi. Hapus lagi. Pada akhirnya, tidak ada satu pun pesan yang terkirim. Ia meletakkan ponselnya di lantai dan menatap langit-langit kamar yang kusam.
+Biru menghela nafas pelan. Jari-jarinya sempat mengetik: “Aku di Jakarta.” Berhenti. Hapus. Ia mencoba lagi: “Aku sebenernya lagi sangat gelisah dan butuh teman cerita..” Berhenti lagi. Hapus lagi. Pada akhirnya, tidak ada satu pun pesan yang terkirim. Ia meletakkan ponselnya di lantai dan menatap langit-langit kamar yang kusam.
 
 Fikiran Biru melayang kembali ke masa lalunya di pesantren Pesisir Jawa Tengah. Ia teringat nasihat ustadnya bahwa yang paling kuat bukanlah orang yang tidak pernah jatuh, melainkan yang tidak lari dari dirinya sendiri. Namun di Jakarta, Biru merasa ia sedang melakukan hal yang sebaliknya. Ia sedang lari dari Jingga yang menuntut kejujuran, dan ia juga sedang lari dari Laras yang menawarinya jalan pulang.
 
@@ -1416,7 +1414,7 @@ Tiba-tiba, ponselnya bergetar di lantai. Pesan baru dari Jingga.
 
 Biru membaca pesan itu dengan cepat, lalu mengulanginya lagi lebih pelan. Ia menyadari satu keanehan: tidak ada lokasi yang dibagikan, tidak ada alasan yang diberikan, dan tidak ada arah ke mana Jingga akan pergi selanjutnya. Pesan itu terasa seperti sebuah keputusan final yang sudah selesai dibuat sebelum percakapan dimulai. Belum sempat ia merespons, getaran kedua muncul. Kali ini dari Laras.
 
-“Ru… kalau kamu memang lelah, pulang aja”.
+“Ru… kalau kamu memang lelah, pulang aja dulu”.
 
 Biru tertawa kecil, suara tawa yang kering dan getir. Ia merasa ironis karena dua kalimat itu datang dari dua dunia yang sama sekali tidak mengetahui keberadaan satu sama lain, namun keduanya sama-sama menawarkan jalan keluar dari kebisingan Jakarta yang mencekiknya. Ia duduk tegak di lantai, menatap dua percakapan yang terbuka di layarnya. Dua arah yang berbeda, yang tidak mungkin ia jawab dengan satu versi dirinya yang masih berantakan.
 
@@ -1446,13 +1444,13 @@ Panggilan ketiga tidak pernah datang. Sebagai gantinya, sebuah pesan singkat mas
 
 Seketika, oksigen di ruangan itu terasa menipis. Biru baru menyadari bahwa diamnya bukan lagi sebuah perlindungan, melainkan sebuah belati. Ia mengetik nama Jingga di kolom pesan, jari-jarinya gemetar hebat. Ia ingin bertanya ke mana Jingga pergi, atau sekadar mengucapkan hati-hati, namun ia menghapusnya kembali. Ia sadar, tidak ada kata yang cukup kuat untuk menahan seseorang yang sudah lelah menebak-nebak arah jalan pulang. Ia telah membiarkan Jingga pergi dengan cara yang paling menyakitkan bagi seorang perempuan: tanpa suara.
 
-Biru berdiri dengan kaki yang terasa lemas. Ia menyambar jaket lusuhnya, tidak tahan lagi berada di dalam kamar yang tiba-tiba terasa seperti penjara. Ia keluar menembus gerimis yang mulai mereda di gang Adam daerah Slipi, namun dinginnya tetap terasa menusuk. Langkahnya membawanya ke arah Stasiun, tempat di mana rel-rel besi membentang menuju arah yang berbeda, seolah mencerminkan jiwanya yang terbelah.
+Biru berdiri dengan kaki yang terasa lemas. Ia menyambar jaket lusuhnya, tidak tahan lagi berada di dalam kamar yang tiba-tiba terasa seperti penjara. Ia keluar menembus gerimis yang mulai mereda di gang Jati Bunder daerah Tanahabang, namun dinginnya tetap terasa menusuk. Langkahnya membawanya ke arah Stasiun, tempat di mana rel-rel besi membentang menuju arah yang berbeda, seolah mencerminkan jiwanya yang terbelah.
 
-Di atas KRL malam yang lampunya terlalu terang, Biru duduk di dekat jendela. Ia menatap pantulan wajahnya sendiri di kaca yang buram oleh uap air. Wajah itu tampak asing. Ia melihat seorang laki-laki yang dididik di pesantren untuk menjadi kuat, menjadi "telaga sunyi yang dipaksa menelan badai tanpa pernah mengizinkan airnya meluap ke permukaan", namun kini justru sedang retak oleh egonya sendiri.
+Di atas KRL malam yang lampunya terlalu terang, Biru duduk di dekat jendela. Ia menatap pantulan wajahnya sendiri di kaca yang buram oleh uap air. Wajah itu tampak asing. Ia melihat seorang laki-laki yang dididik di pesantren untuk menjadi kuat, menjadi "telaga sunyi yang dipaksa menelan badai tanpa pernah mengizinkan airnya meluap ke permukaan", namun kini justru sedang runtuh oleh egonya sendiri.
 
-Ingatannya melayang pada Larasati Nirmala di Solo. Baru kemarin ia menerima pesan singkat dari Laras yang isinya sederhana namun menyesakkan: “Kalau kamu lelah, pulang aja.”
+Ingatannya melayang pada Larasati Nirmala di Solo. Baru kemarin ia menerima pesan singkat dari Laras yang isinya sederhana namun menyesakkan: “Kalau kamu memang lelah, pulang aja dulu.”
 
-Kata "pulang" bagi Biru adalah sebuah paradoks. Pulang berarti kembali ke Solo, kembali ke dekapan Laras yang aman, statis, dan penuh kenangan masa SMA yang rapi. Namun, pesan dari Jingga yang baru saja diterimanya adalah sebuah dinamisasi—gaya yang terus-menerus mendorongnya keluar dari zona nyaman. Ia merasa seperti variabel yang hilang di antara dua garis sejajar yang tidak pernah boleh bertemu.
+Kata "pulang" bagi Biru adalah sebuah paradoks. Pulang berarti kembali ke Semarang atau Solo, kembali ke dekapan Laras yang aman, statis, dan penuh kenangan masa SMA yang rapi. Namun, pesan dari Jingga yang baru saja diterimanya adalah sebuah dinamisasi—gaya yang terus-menerus mendorongnya keluar dari zona nyaman. Ia merasa seperti variabel yang hilang di antara dua garis sejajar yang tidak pernah boleh bertemu.
 
 "Kenapa aku tidak bisa seberani itu untuk memilih?" bisiknya pelan, hampir hilang ditelan suara gesekan rel kereta.
 
@@ -1482,7 +1480,7 @@ Malam itu, di bawah langit Jakarta yang masih basah, Biru Aji Pratama akhirnya m
 
 Jingga Maharani tidak pernah merencanakan Solo. Seharusnya, malam itu ia berada di penerbangan menuju Surabaya untuk menangani pembukaan cabang baru. Namun, garis takdir mendadak berbelok di koridor kantor Jakarta saat seorang rekan senior jatuh sakit dan harus dilarikan ke rumah sakit. Karena dianggap paling siap dan memahami alur sistem, perintah itu jatuh padanya tepat dua jam sebelum keberangkatan: "Ganti rute ke Solo, Jingga. Sekarang."
 
-Tiket pesawat yang ia genggam erat di Terminal 3 Bandara Soekarno-Hatta malam itu bukanlah sebuah pilihan sadar, melainkan pelarian yang legal lewat penugasan kantor. Bagi Jingga, Solo bukan sekadar kota tujuan proyek lintas kota yang datang tiba-tiba. Solo adalah jarak yang ia butuhkan untuk berhenti mendengarkan gema panggilan telepon yang tidak pernah diangkat oleh Biru Aji Pratama di Jakarta.
+Tiket pesawat yang ia genggam erat di Terminal 2 Bandara Soekarno-Hatta malam itu bukanlah sebuah pilihan sadar, melainkan pelarian yang legal lewat penugasan kantor. Bagi Jingga, Solo bukan sekadar kota tujuan proyek lintas kota yang datang tiba-tiba. Solo adalah jarak yang ia butuhkan untuk berhenti mendengarkan gema panggilan telepon yang tidak pernah diangkat oleh Biru Aji Pratama di Jakarta.
 
 “Cuma beberapa minggu,” kata atasannya waktu itu. Tapi bagi Jingga, “beberapa minggu” selalu terdengar seperti sesuatu yang tidak benar-benar bisa dihitung: sebuah tempat baru yang diam-diam menggeser cara seseorang memahami hidupnya. Ia tidak terlalu banyak bertanya saat itu. Tidak juga menolak. Mungkin karena Jakarta sudah terlalu penuh dengan hal-hal yang tidak sempat ia selesaikan, atau justru karena ia butuh alasan untuk berpindah tanpa harus menyebutkan alasan yang sebenarnya.
 
@@ -1492,15 +1490,15 @@ Hari pertama di Solo disambut oleh hujan tipis. Bukan hujan deras yang menghakim
 
 Kantor cabang tempatnya ditugaskan tidak besar; sebuah bangunan lama yang direnovasi sebagian. AC yang kadang terlalu dingin dan komputer yang seolah menunggu waktu untuk diganti menjadi teman barunya. Justru di situ Jingga merasa harus belajar ulang banyak hal, termasuk cara hadir di tempat baru tanpa merasa seperti orang yang sedang menumpang.
 
-Di hari kedua, ia diperkenalkan pada satu nama: Larasati Nirmala. Laras berdiri di dekat meja resepsionis, tidak terburu-buru menyambut namun juga tidak terlalu formal. Hanya mengangguk kecil, seperti seseorang yang sudah terbiasa dengan orang baru yang datang dan pergi. “Jingga, ya?” suaranya tenang. “Kalau ada apa-apa di kantor, tanya aku aja.” Sederhana. Terlalu sederhana untuk diingat, tapi justru itu yang membuat Jingga menyimpannya.
+Di hari berikutnya, ia diperkenalkan pada satu nama: Larasati Nirmala. Laras berdiri di dekat meja resepsionis, tidak terburu-buru menyambut namun juga tidak terlalu formal. Hanya mengangguk kecil, seperti seseorang yang sudah terbiasa dengan orang baru yang datang dan pergi. “Jingga, ya?” suaranya tenang. “Kalau ada apa-apa di kantor, tanya aku aja.” Sederhana. Terlalu sederhana untuk diingat, tapi justru itu yang membuat Jingga menyimpannya.
 
 Hari-hari berikutnya berjalan dengan pola yang tidak mencolok. Dokumen, data, dan sistem kerja yang masih setengah manual. Laras tidak banyak bicara, tapi setiap kali ia bicara, selalu ada kejelasan di dalamnya—seperti orang yang sudah selesai berdebat dengan dirinya sendiri jauh sebelum berbicara dengan orang lain.
 
-Suatu siang, hujan turun lebih deras. Jingga berdiri di depan kantor, menunggu hujan reda. Laras muncul membawa dua gelas kopi plastik, menyodorkan satu tanpa banyak kata. “Biasanya nggak lama,” kata Laras. Jingga menerima kopi itu, merasakan hangatnya menjalar ke telapak tangan. “Kalau di Jakarta, hujan nggak pernah ‘nggak lama’.” Laras hanya tersenyum kecil. “Makanya di sini beda.” Hening sebentar, namun bukan hening yang canggung. Lebih seperti ruang kecil yang tidak memaksa diisi.
+Suatu siang, hujan turun lebih deras. Jingga berdiri di depan kantor, menunggu hujan reda. Laras muncul membawa dua gelas kopi plastik, menyodorkan satu tanpa banyak kata. “Biasanya nggak lama,” kata Laras. Jingga menerima kopi itu, merasakan hangatnya menjalar ke telapak tangan. “Kalau di Jakarta, hujan nggak pernah ‘nggak lama’.” Laras hanya tersenyum kecil. “Makanya di sini beda.” Hening sebentar, namun bukan hening yang canggung. Lebih seperti ruang kecil yang tidak memaksa untuk diisi.
 
 Sejak hari itu, pola mulai terbentuk: makan siang di warung yang sama dan obrolan singkat yang melebar ke hal-hal kecil seperti macet dan makanan. Laras tidak pernah bertanya terlalu dalam, tapi juga tidak pernah menjauh saat Jingga diam terlalu lama. Jingga mulai merasa bahwa ia tidak perlu selalu menjelaskan dirinya untuk bisa tetap diterima di satu ruang.
 
-Lama-kelamaan, minggu tidak lagi terasa seperti sesuatu yang dihitung, melainkan sesuatu yang dialami tanpa disadari selesai. Laras mulai tahu cara Jingga minum kopi, dan Jingga mulai tahu kapan Laras sedang tidak ingin banyak bicara. Tanpa ada kesepakatan atau definisi hubungan, Solo tidak lagi terasa seperti tempat penugasan bagi Jingga, melainkan tempat di mana ia mulai tidak buru-buru menjadi siapa pun.
+Lama-kelamaan, putaran waktu tidak lagi terasa seperti sesuatu yang dihitung, melainkan sesuatu yang dialami tanpa disadari. Laras mulai tahu cara Jingga minum kopi, dan Jingga mulai tahu kapan Laras sedang tidak ingin banyak bicara. Tanpa ada kesepakatan atau definisi hubungan, Solo tidak lagi terasa seperti tempat penugasan bagi Jingga, melainkan tempat di mana ia mulai tidak buru-buru menjadi siapa pun.
 
 Di Jakarta, pada waktu yang tidak mereka sadari terhubung, Biru Aji Pratama sedang menatap layar ponselnya dengan rasa bersalah yang memuncak. Dan di Solo, Jingga baru saja menutup laptopnya lebih lambat dari biasanya, tanpa tahu bahwa ada satu nama lain—seorang laki-laki dari masa lalu Laras dan masa kini Jingga—yang sedang belajar cara untuk tidak lagi melarikan diri dari takdir.
 
@@ -1514,9 +1512,9 @@ Hari-hari di Solo mulai berubah bentuknya bagi Jingga Maharani. Kota ini bukan l
 
 Awalnya segala sesuatu terasa sederhana. Kedekatan mereka terbangun dari fragmen-fragmen kecil yang tidak pernah direncanakan. Makan siang di warung gudeg dekat kantor yang menunya tidak pernah berubah, namun entah mengapa tidak pernah terasa membosankan. Obrolan ringan tentang sistem pengarsipan yang sering selesai lebih cepat dari waktu makan itu sendiri. Hingga hujan sore yang datang tanpa tanda, membuat mereka terpaksa menunda pulang dan terjebak dalam percakapan yang lebih dalam dari sekadar urusan logistik kantor.
 
-Laras tidak banyak bercerita tentang dirinya, namun ia juga tidak membangun tembok yang tinggi. Ia hanya… ada. Stabil. Tidak memaksa untuk masuk, namun tidak juga menghilang saat suasana menjadi sunyi. Justru stabilitas itulah yang membuat Jingga perlahan menyadari sesuatu yang sulit ia definisikan: bahwa tidak semua kedekatan harus dimulai dari ledakan cerita besar. Kadang, kedekatan paling jujur lahir dari hal-hal kecil yang diulang terlalu sering hingga menjadi kebiasaan.
+Laras tidak banyak bercerita tentang dirinya, namun ia juga tidak membangun tembok yang tinggi. Ia hanya… ada. Stabil. Tidak memaksa untuk masuk, namun tidak juga menghilang saat suasana menjadi sunyi. Justru stabilitas itulah yang membuat Jingga perlahan menyadari sesuatu yang sulit ia definisikan: bahwa tidak semua kedekatan harus dimulai dari kehebohan cerita besar. Kadang, kedekatan paling jujur lahir dari hal-hal kecil yang diulang terlalu sering hingga menjadi kebiasaan.
 
-Suatu siang, mereka duduk di warung makan langganan. Kipas angin tua di sudut ruangan berputar pelan, mencoba mengusir gerah udara Solo yang lembab. Suara denting sendok yang beradu dengan piring menjadi satu-satunya ritme yang mengisi meja mereka selama beberapa menit.
+Suatu siang, mereka duduk di warung makan langganan. Kipas angin tua di sudut ruangan berputar pelan, mencoba mengusir gerah udara Solo yang kering namun lembab. Suara denting sendok yang beradu dengan piring menjadi satu-satunya ritme yang mengisi meja mereka selama beberapa menit.
 
 “Laras,” kata Jingga tiba-tiba, tanpa melihat langsung ke arah lawan bicaranya. Tangannya sibuk mengaduk es teh yang sudah hampir tawar.
 
@@ -1556,9 +1554,9 @@ Laras menoleh, matanya yang teduh menatap Jingga dengan sorot yang sulit diartik
 
 “Tenang. Kayak nggak ada badai yang bisa bikin kamu goyah.”
 
-Pertanyaan itu membuat Laras diam sedikit lebih lama. Bukan karena ia tersinggung, tapi ia seperti sedang membuka-buka laci di kepalanya, memilih mana jawaban yang paling pantas diucapkan kepada orang yang baru dikenalnya beberapa minggu ini.
+Pertanyaan itu membuat Laras diam sedikit lebih lama. Bukan karena ia tersinggung, tapi ia seperti sedang membuka-buka laci di kepalanya, memilih mana jawaban yang paling pantas diucapkan kepada orang yang baru dikenalnya beberapa hari ini.
 
-“Aku nggak selalu tenang, Jingga,” katanya akhirnya, suaranya hampir kalah oleh suara guntur di kejauhan. “Cuma aku belajar dari masa lalu… kalau semua hal kita tunjukin, semua luka kita pamerin, nanti kita capek sendiri menghadapi reaksi orang-orang yang sebenarnya nggak benar-benar peduli.”
+“Aku nggak selalu tenang, Jingga,” katanya, suaranya hampir kalah oleh suara guntur di kejauhan. “Cuma aku belajar dari masa lalu… kalau semua hal kita tunjukin, semua luka kita pamerin, nanti kita capek sendiri menghadapi reaksi orang-orang yang sebenarnya nggak benar-benar peduli.”
 
 Jingga mengangguk pelan. Kali ini, ia tidak benar-benar setuju, melainkan sedang mengingat sesuatu yang menyesakkan. Di dalam kepalanya, tanpa diminta, muncul bayangan Biru Aji Pratama. Bukan wajahnya yang paling jelas, melainkan caranya diam saat mereka berada di halte Sudirman. Caranya menghindari jawaban dengan berlindung di balik kacamata dan rumus-rumus fisika. Jingga menyadari satu hal yang mengerikan: ketenangan Laras dan diamnya Biru berasal dari akar yang sama—sebuah mekanisme pertahanan diri.
 
@@ -1576,11 +1574,11 @@ Laras menoleh sepenuhnya, menatap Jingga dengan serius. “Capek nggak, Jingga? 
 
 Pertanyaan itu sederhana, tapi bagi Jingga, itu tidak lagi terdengar seperti soal hujan. Itu adalah pertanyaan tentang caranya mencintai Biru selama di Bogor dan Jakarta. Tentang cara hidupnya yang selalu menuntut kepastian dari seseorang yang bahkan belum selesai dengan dirinya sendiri. Jingga tidak langsung menjawab. Ia hanya menatap rintik air yang mengenai ujung sepatunya.
 
-Laras tidak bertanya lebih jauh, dan itu yang membuat Jingga merasa aman sekaligus terusik. Ia merasa Laras memiliki kunci menuju sebuah kedamaian yang tidak pernah ia miliki. Sementara itu, di tas kerja Laras yang tergeletak di antara mereka, tersimpan sebuah buku puisi lama—buku yang berisi tulisan tangan Biru saat SMA, sebuah rahasia yang belum waktunya dibuka malam ini.
+Laras tidak bertanya lebih jauh, dan itu yang membuat Jingga merasa aman sekaligus terusik. Ia merasa Laras memiliki kunci menuju sebuah kedamaian yang tidak pernah ia miliki. Sementara itu, di tas kerja Laras yang tergeletak di antara mereka, tersimpan sebuah buku puisi lama—buku yang berisi tulisan tangan Biru saat SMA, sebuah rahasia yang belum waktunya terbuka malam ini.
 
 Hujan mulai mengecil, menyisakan bau tanah basah yang tajam. Namun mereka berdua masih berdiri beberapa detik sebelum benar-benar melangkah pergi. Seolah ada sesuatu yang tidak ingin mereka selesaikan terlalu cepat di bawah atap toko itu.
 
-Malam itu, di dalam kamarnya yang sepi, Jingga mulai menyadari sesuatu yang tidak ia ucapkan pada siapa pun: bahwa Larasati Nirmala bukan sekadar rekan kerja yang kebetulan dikirim takdir untuk membantunya di Solo. Laras adalah cermin dari segala hal yang selama ini Biru cari namun tidak ia temukan pada diri Jingga. Dan tanpa disadari, persinggungan hidup mereka baru saja dimulai—sebuah garis yang perlahan tidak lagi terasa seperti kebetulan, melainkan awal dari sebuah tabrakan emosional yang akan meledak di bab-bab selanjutnya.
+Malam itu, di dalam kamarnya yang sepi, Jingga mulai menyadari sesuatu yang tidak ia ucapkan pada siapa pun: bahwa Larasati Nirmala bukan sekadar rekan kerja yang kebetulan dikirim takdir untuk membantunya di Solo. Laras adalah cermin dari segala hal yang selama ini Biru cari namun tidak ia temukan pada diri Jingga. Dan tanpa disadari, persinggungan hidup mereka baru saja dimulai—sebuah garis yang perlahan tidak lagi terasa seperti kebetulan, melainkan awal dari sebuah tabrakan emosional yang akan meledak di hari-hari selanjutnya.
 
 Di Jakarta, Biru Aji Pratama sedang menatap tiket kereta menuju Solo Balapan, tidak menyadari bahwa di kota itu, masa lalunya dan masa kininya sudah mulai saling mengenal nama tanpa perlu kehadirannya.
 
@@ -1590,13 +1588,13 @@ Di Jakarta, Biru Aji Pratama sedang menatap tiket kereta menuju Solo Balapan, ti
 
 Malam itu di kantor kecil di Solo, hujan baru saja benar-benar selesai turun. Bukan berhenti secara tiba-tiba dengan pengumuman yang megah, melainkan pelan-pelan menyerah. Tetes terakhirnya jatuh dari talang seng yang berkarat, lalu kota kembali mengambil napasnya sendiri yang basah. Udara di dalam ruangan terasa lembab dan dingin, sebuah sisa dari pertarungan cuaca di luar sana yang kini hanya menyisakan aroma aspal basah dan tanah yang jenuh.
 
-Lampu neon di dalam ruangan memantul lembut di atas permukaan meja kayu yang mulai kusam dan baret di sana-sini. Di luar, jalanan Solo tampak lengang; hanya sesekali suara motor lewat, meninggalkan deru yang cepat hilang ditelan sunyinya malam. Di dalam ruangan itu, Jingga Maharani dan Larasati Nirmala masih duduk berhadapan. Mereka dikelilingi oleh tumpukan dokumen yang seolah tidak ada habisnya. Map-map kerja berserakan—sebagian sudah diberi label rapi, sebagian lagi masih kosong dan menganga, persis seperti cerita hidup mereka yang malam ini akan menemukan titik temunya yang paling getir.
+Lampu neon di dalam ruangan memantul lembut di atas permukaan meja kayu yang mulai kusam dan baret di sana-sini. Di luar, jalanan Solo tampak lengang; hanya sesekali suara motor lewat, meninggalkan deru yang cepat hilang ditelan sunyinya malam. Di dalam ruangan itu, Jingga Maharani dan Larasati Nirmala masih duduk berhadapan. Mereka dikelilingi oleh tumpukan dokumen yang seolah tidak ada habisnya. Map-map kerja berserakan—sebagian sudah diberi label rapi, sebagian lagi masih kosong dan terbuka, persis seperti cerita hidup mereka yang malam ini akan menemukan titik temunya yang paling getir.
 
 “Ini masukin ke folder arsip ya, Lar?” tanya Jingga sambil merapikan lembar terakhir laporan logistik.
 
 “Iya,” jawab Laras singkat. Tangannya masih sibuk menata stapler dan beberapa catatan kecil yang tercecer.
 
-Mereka sudah bekerja cukup lama malam itu, melampaui jam kantor yang seharusnya. Percakapan awalnya ringan dan fungsional—tentang kopi sachet yang terlalu manis namun tetap diminum demi menahan kantuk, tentang macet di daerah Purwosari sore tadi, hingga tentang betapa awetnya hujan menyapu aspal sejak mereka tiba. Namun perlahan, seperti hal-hal lain yang tidak direncanakan, percakapan mereka mulai kehilangan permukaannya. Kedekatan yang terbangun selama beberapa hari ini mulai menuntut sesuatu yang lebih dalam daripada sekadar urusan kantor.
+Mereka sudah bekerja cukup lama malam itu, melampaui jam kantor yang seharusnya. Percakapan awalnya ringan dan operasional—tentang kopi sachet yang terlalu manis namun tetap diminum demi menahan kantuk, tentang macet di daerah Purwosari sore tadi, hingga tentang betapa awetnya hujan menyapu aspal sejak mereka tiba. Namun perlahan, seperti hal-hal lain yang tidak direncanakan, percakapan mereka mulai kehilangan permukaannya. Kedekatan yang terbangun selama beberapa hari ini mulai menuntut sesuatu yang lebih dalam daripada sekadar urusan kantor.
 
 Jingga menarik satu map yang agak tebal. Ia membalik halaman depannya, lalu tanpa sadar meraih sebuah pulpen hitam. Di margin kecil kertas itu—mungkin karena dorongan alam bawah sadar yang sudah terlalu lama ia bendung—ia menuliskan sebuah nama. Sebuah nama yang selalu menjadi variabel tetap dalam setiap doa dan lamunannya selama di Bogor hingga Jakarta.
 
@@ -1608,7 +1606,7 @@ Waktu seolah tersendat tepat di detik itu. Tangan Laras yang tadi bergerak linca
 
 Biru Aji Pratama.
 
-Nama itu bukan sekadar deretan alfabet bagi Laras. Nama itu adalah alamat rumah yang selalu ingin ia kunjungi, suara di balik telepon wartel pukul sepuluh malam, dan ribuan surat yang tersimpan rapi di bawah bantalnya di Solo. Nama itu tidak seharusnya ada di sini, di atas kertas milik seorang perempuan Jakarta yang baru ia kenal beberapa minggu.
+Nama itu bukan sekadar deretan alfabet bagi Laras. Nama itu adalah alamat rumah yang selalu ingin ia kunjungi, suara di balik telepon wartel pada pukul sepuluh malam, dan ribuan surat yang tersimpan rapi di bawah bantalnya di Solo. Nama itu tidak seharusnya ada di sini, di atas kertas milik seorang perempuan Jakarta yang baru ia kenal beberapa hari.
 
 “Kamu… kenal Biru?” suara Laras keluar sangat pelan, hampir berupa bisikan yang takut memecahkan sesuatu yang rapuh di antara mereka.
 
@@ -1626,7 +1624,7 @@ Kalimat itu menggantung lama. Lebih lama dari yang nyaman bagi siapapun. Di luar
 
 Laras mengulang kata itu dalam kepalanya: mengenalnya. Bukan ‘pernah dekat’, bukan ‘pernah sayang’, tapi sebuah pengakuan tentang upaya untuk memahami seseorang yang selama ini selalu menutup dirinya rapat-rapat.
 
-“Jadi…” Laras menarik napas pendek, mencoba menstabilkan suaranya yang mulai goyah, “kalian kenal di waktu yang berbeda? Di Bogor?”
+“Jadi…” Laras menarik napas pendek, mencoba menstabilkan suaranya yang mulai goyah, “kalian saling kenal di waktu yang berbeda? Saat di Bogor?”
 
 Jingga mengangguk kecil. “Dia anak Fisika. Aku Matematika. Kami bertemu di bawah pohon kapas saat hujan, Lar. Dan sejak itu, aku merasa dia adalah teka-teki paling sulit yang pernah aku coba pecahkan.”
 
@@ -1634,7 +1632,7 @@ Laras memejamkan mata sesaat. Ia teringat surat-surat dari Bogor yang Biru kirim
 
 “Dia pernah cerita tentang masa SMA-nya,” lanjut Jingga. “Tapi tidak pernah lengkap. Seperti ada satu bab yang sengaja dia robek dari bukunya. Dia selalu bilang ingin pulang ke Semarang atau Solo, tapi dia nggak pernah bilang siapa yang menunggunya di sini.”
 
-Laras tersenyum kecil, kali ini matanya mulai berkaca-kaca. “Dia memang begitu, Jingga. Dia dididik untuk menjadi sebuah bejana yang terus diisi oleh ekspektasi dan keadaan, dituntut untuk tetap utuh meski retakannya sudah tak terhitung. Dia belajar terlihat kuat supaya nggak membuat orang lain khawatir. Tapi ternyata, pura-pura kuat itu justru melukai kita semua.”
+Laras tersenyum kecil, kali ini matanya mulai berkaca-kaca. “Dia memang begitu, Jingga. Dia dididik untuk menjadi sebuah bejana yang terus diisi oleh ekspektasi dan keadaan, dituntut untuk tetap utuh meski retakannya sudah tak terhitung. Dia belajar terlihat kuat supaya nggak membuat orang lain khawatir. Tapi ternyata, pura-pura kuat itu justru bisa melukai kita semua.”
 
 Jingga menyandarkan punggungnya ke kursi, merasa seluruh energi kinetiknya terserap habis oleh kenyataan ini. “Jadi selama ini… kita sedang membicarakan orang yang sama. Laki-laki yang sama-sama membuat kita menunggu tanpa kepastian.”
 
@@ -1654,9 +1652,9 @@ Mereka berdua tidak tahu bahwa di saat yang sama, kereta malam yang membawa Biru
 
 # **30 — Kereta Malam Menuju Solo**
 
-Tidak ada alasan yang benar-benar bisa ia jelaskan dengan rapi, bahkan jika ia mencoba memaksa logikanya bekerja sekeras saat ia mengolah data riset di laboratorium. Biru Aji Pratama membeli tiket ke Solo malam itu bukan karena undangan, bukan karena pekerjaan, dan bukan pula karena janji yang jelas bentuknya. Hanya satu hal yang lebih jujur dari semua alasan itu: sebuah dorongan yang tidak selesai sejak lama. Sebuah rasa jenuh karena terus-menerus menjadi "tempat penitipan air mata yang harus berpura-pura kokoh, menolak runtuh demi menjaga semuanya tetap terlihat baik-baik saja", didikan yang kini justru membuatnya retak.
+Tidak ada alasan yang benar-benar bisa ia jelaskan dengan rapi, bahkan jika ia mencoba memaksa logikanya bekerja sekeras mungkin saat ia mengolah data riset di laboratorium. Biru Aji Pratama membeli tiket ke Solo malam itu bukan karena undangan, bukan karena pekerjaan, dan bukan pula karena janji yang jelas bentuknya. Hanya satu hal yang lebih jujur dari semua alasan itu: sebuah dorongan yang tidak selesai sejak lama. Sebuah rasa jenuh karena terus-menerus menjadi "tempat penitipan air mata yang harus berpura-pura kokoh, menolak runtuh demi menjaga semuanya tetap terlihat baik-baik saja", didikan yang kini justru membuatnya retak.
 
-Kereta malam Senja Utama berangkat perlahan dari Stasiun Gambir, Jakarta. Pergerakannya lambat, seperti sesuatu yang tidak ingin terlalu cepat meninggalkan masa lalu yang masih tertinggal di Jakarta dan Bogor. Biru duduk di kursi dekat jendela, menatap lampu-lampu Jakarta yang bergeser mundur di balik kaca. Titik-titik cahaya itu mengecil, lalu hilang satu per satu, seperti ingatan yang tidak pernah ia panggil namun tetap datang mengetuk pintu kepalanya.
+Kereta malam Argo Lawu berangkat perlahan dari Stasiun Gambir, Jakarta. Pergerakannya lambat, seperti sesuatu yang tidak ingin terlalu cepat meninggalkan masa lalu yang masih tertinggal di Jakarta dan Bogor. Biru duduk di kursi dekat jendela, menatap lampu-lampu Jakarta yang bergeser mundur di balik kaca. Titik-titik cahaya itu mengecil, lalu hilang satu per satu, seperti ingatan yang tidak pernah ia panggil namun tetap datang mengetuk pintu kepalanya.
 
 Hujan tipis menempel di kaca jendela, menyisakan jejak air yang buram. Bukan hujan deras, hanya sisa—persis seperti kalimat-kalimat menggantung yang tidak sempat ia akhiri saat bersama Jingga di halte Bogor atau saat ia mengabaikan panggilan teleponnya di Jakarta tempo hari. Biru menjinjing tas kecilnya yang hanya berisi sedikit pakaian dan banyak sekali kegelisahan. Di atas pangkuannya, sebuah buku catatan terbuka pada halaman kosong, namun ia belum sanggup menuliskan apa pun.
 
@@ -1690,11 +1688,11 @@ Tangannya sedikit gemetar saat melanjutkan:
 
 “Aku hanya tidak sanggup lagi berpura-pura bahwa semua ini tidak pernah memanggilku kembali.”
 
-Ia menutup buku itu perlahan dengan suara plak yang tegas. Biru akhirnya mengakui sesuatu yang berat: Solo bukan tujuan yang tiba-tiba muncul. Solo adalah titik yang diam-diam dibentuk oleh semua tempat yang pernah ia tinggalkan tanpa benar-benar menutupnya. Ia pergi ke Solo sebagai seorang pengungsi emosional yang berharap bisa menemukan kembali dirinya yang hilang di antara gerimis Jakarta dan kenangan masa remaja.
+Ia menutup buku itu perlahan dengan suara plak yang pelan. Biru akhirnya mengakui sesuatu yang berat: Solo bukan tujuan yang tiba-tiba muncul. Solo adalah titik yang diam-diam dibentuk oleh semua tempat yang pernah ia tinggalkan tanpa benar-benar menutupnya. Ia pergi ke Solo sebagai seorang pengungsi emosional yang berharap bisa menemukan kembali dirinya yang hilang di antara gerimis Jakarta dan kenangan masa kuliah dulu.
 
-Namun, ada satu hal besar yang tidak ia ketahui di gerbong kereta yang dingin itu: bahwa di Solo, bukan hanya Laras yang menunggunya. Tapi juga Jingga—yang keberadaannya di kota yang sama sama sekali belum ia sadari. Ia belum tahu bahwa kedua perempuan itu kini telah bersatu di bawah atap kantor yang sama, menata luka yang baru saja ia goreskan, dan mulai menyusun potongan-potongan jiwanya tanpa kehadirannya.
+Namun, ada satu hal besar yang tidak ia ketahui di gerbong kereta yang dingin itu: bahwa di Solo, bukan hanya Laras yang menunggunya. Tapi juga Jingga—yang keberadaannya di kota yang sama, sama sekali belum ia sadari. Ia belum tahu bahwa kedua perempuan itu kini telah bersatu di bawah atap kantor yang sama, menata luka yang baru saja ia goreskan, dan mulai menyusun potongan-potongan jiwanya tanpa kehadirannya.
 
-Kereta Senja Utama terus membelah kegelapan Pulau Jawa, membawa Biru menuju apa yang ia kira adalah suaka, namun sebenarnya adalah sebuah pengadilan emosional. Solo Balapan sudah menunggunya di ujung rel, dan Biru Aji Pratama tahu, ia tidak bisa lagi berpura-pura sedang tertidur dari hidupnya sendiri.
+Kereta Argo Lawu terus bergerak cepat membelah kegelapan Pulau Jawa, membawa Biru menuju apa yang ia kira adalah suaka, namun sebenarnya adalah sebuah pengadilan keputusan hati. Solo Balapan sudah menunggunya di ujung rel, dan Biru Aji Pratama tahu, ia tidak bisa lagi berpura-pura sedang tertidur dari hidupnya sendiri.
 
 #
 
@@ -1702,9 +1700,9 @@ Kereta Senja Utama terus membelah kegelapan Pulau Jawa, membawa Biru menuju apa 
 
 Kereta belum sampai Solo, tetapi malam sudah mulai kehilangan kegelapannya yang paling pekat. Di luar jendela gerbong eksekutif yang mulai dingin oleh AC, langit perlahan berubah dari hitam menjadi biru indigo yang sangat tipis. Biru Aji Pratama masih terjaga, matanya menatap pantulan wajahnya sendiri di kaca yang berembun, sementara sebagian besar penumpang di sekelilingnya telah menyerah pada kantuk, tertidur dengan kepala bersandar di bantal kecil atau kaca jendela.
 
-Suara roda kereta yang beradu dengan rel terdengar ritmis dan stabil—tak-tuk, tak-tuk—seperti zikir panjang yang tidak selesai-selesai. Biru menatap jam tangannya. Jarum menunjukkan pukul 03.14 dini hari. Bagi orang lain, ini adalah jam tidur terdalam, namun bagi Biru, ini adalah jam yang paling ia hafal. Jam-jam yang dulu menempanya di sebuah pesantren sederhana di pesisir Jawa Tengah.
+Suara roda kereta yang beradu dengan rel terdengar ritmis dan stabil—tak-tuk, tak-tuk—seperti zikir panjang yang tidak selesai-selesai. Biru menatap jam tangannya. Jarum menunjukkan pukul 03.14 dini hari. Bagi orang lain, ini adalah jam tidur terdalam, namun bagi Biru, ini adalah jam yang paling ia hafal. Jam-jam yang dulu menempanya di sebuah pesantren tua sederhana di pesisir Jawa Tengah.
 
-Suara kentongan kayu yang dipukul bertalu-talu membelah sunyi fajar di Demak. Udara pantai yang lembap dan dingin menyusup lewat ventilasi asrama, membangunkan para santri untuk menunaikan shalat malam. Biru remaja berjalan setengah sadar, menyeret langkah di atas lantai mushola yang dinginnya menusuk telapak kaki. Ia menyampirkan sarung di pundak, tangan kanannya mendekap kitab kecil yang halamannya mulai menguning.
+Sekilas ia teringat. Suara kentongan kayu yang dipukul bertalu-talu membelah sunyi fajar di Demak. Udara pantai yang lembap dan dingin menyusup lewat ventilasi asrama, membangunkan para santri untuk menunaikan shalat malam. Biru remaja berjalan setengah sadar, menyeret langkah di atas lantai mushola yang dinginnya menusuk telapak kaki. Ia menyampirkan sarung di pundak, tangan kanannya mendekap kitab kecil yang halamannya mulai menguning.
 
 Di pesantren, Biru belajar bahwa hidup adalah tentang kesederhanaan. Namun, ia juga belajar satu hal yang lebih pahit: tidak semua orang berhasil belajar jujur pada dirinya sendiri. Ada malam-malam ketika ia sengaja duduk di barisan paling belakang setelah shalat berjamaah berakhir. Bukan karena ia malas mengaji, tetapi karena ia suka memperhatikan teman-temannya yang berjalan pulang ke kamar masing-masing dengan langkah yang mantap.
 
@@ -1728,7 +1726,7 @@ Jingga Maharani.
 
 Bogor. Kampus Baranangsiang. Suara langkah sepatu yang basah di koridor fakultas. Jingga adalah antitesis dari Laras. Jika Laras adalah ketenangan yang menunggu, Jingga adalah keberanian yang mengetuk. Jingga adalah seseorang yang datang membawa payung biru muda dan memaksa masuk ke dalam ruang sunyi yang selama ini Biru jaga.
 
-Biru menyadari bahwa ia takut pada Jingga bukan karena perempuan itu jahat, tapi karena untuk pertama kalinya dalam hidup, ada seseorang yang ingin meruntuhkan jarak yang ia bangun dengan susah payah sejak dari Demak. Jingga ingin masuk ke bagian hidupnya yang paling dalam, bagian yang bahkan Laras pun hanya berani intip dari balik surat-suratnya.
+Biru menyadari bahwa ia takut pada Jingga bukan karena perempuan itu jahat, tapi karena untuk pertama kalinya dalam hidup, ada seseorang yang ingin meruntuhkan jarak yang ia bangun dengan susah payah sejak ia tinggal di pesantren Demak. Jingga ingin masuk ke bagian hidupnya yang paling dalam, bagian yang bahkan Laras pun hanya berani intip dari balik surat-suratnya.
 
 Biru menunduk, tangannya merogoh tas dan mengeluarkan buku catatan kecilnya yang sudah mulai lusuh. Di bawah lampu gerbong yang temaram, ia menuliskan sesuatu yang sudah lama mengendap di dadanya:“Laras mengajarkanku tentang pulang.”
 
@@ -1744,7 +1742,7 @@ Udara di dalam gerbong mendadak terasa lebih berat, membawa aroma sisa hujan yan
 
 # **32 — Pagi yang Membawa Masa Lalu**
 
-Pagi akhirnya datang ketika kereta api perlahan memasuki wilayah Surakarta. Langit masih pucat, perpaduan antara sisa malam yang enggan pergi dan fajar yang ragu-ragu untuk benar-benar muncul di ufuk timur. Kabut tipis menggantung rendah, menyelimuti atap-atap rumah penduduk yang berderet di sepanjang pinggir rel dan menyamarkan rel-rel baja yang memanjang statis. Bagi Biru Aji Pratama, pemandangan di luar jendela itu seolah-olah menjadi saksi bisu atas sebuah kepulangan yang dipaksakan oleh batinnya sendiri.
+Pagi akhirnya datang ketika kereta api perlahan memasuki wilayah Surakarta. Langit masih pucat, perpaduan antara sisa malam yang enggan pergi dan fajar yang ragu-ragu untuk benar-benar muncul di ufuk timur. Kabut tipis menggantung rendah, menyelimuti atap-atap rumah penduduk yang berderet di sepanjang pinggir rel dan menyamarkan rel-rel baja yang memanjang statis. Bagi Biru, pemandangan di luar jendela itu seolah-olah menjadi saksi bisu atas sebuah kepulangan yang dipaksakan oleh batinnya sendiri.
 
 Biru terbangun sepenuhnya saat suara pengeras suara di dalam gerbong bergema, memecah keheningan subuh dengan nada protokoler yang kaku: “Sebentar lagi kita tiba di Stasiun Solo Balapan”. Kalimat itu sederhana, sebuah informasi rutin bagi ratusan penumpang lainnya, namun bagi Biru, ia terdengar seperti ketukan palu hakim di ruang sidang. Ada beban yang tiba-tiba menekan dadanya, membuat oksigen di dalam gerbong eksekutif yang dingin itu mendadak terasa menipis.
 
@@ -1762,19 +1760,19 @@ Tangannya terulur, seolah ditarik oleh kekuatan magnetis, mengambil satu lembar 
 
 “Tapi untuk mengajarkan bahwa hati manusia bisa patah tanpa suara.”
 
-Biru membaca kalimat itu berulang kali sampai matanya terasa panas. Ia tersenyum pahit, sebuah senyum yang lebih mirip dengan sebuah pengakuan dosa di hadapan Tuhan. Sepanjang hidupnya, sejak dididik keras di pesantren Demak untuk tidak cengeng, ia selalu merasa dirinya adalah korban. Ia merasa sebagai orang yang “tertinggal” dalam kesunyian dan kesendirian. Namun, berdiri di trotoar Solo ini, ia menyadari kenyataannya justru terbalik: dialah yang terlalu sering meninggalkan orang lain di tengah jalan. Dialah yang membiarkan pintu-pintu hatinya tertutup rapat tanpa pernah memberikan kata penutup yang layak bagi mereka yang mencoba masuk.
+Biru membaca kalimat itu berulang kali sampai matanya terasa panas. Ia tersenyum pahit, sebuah senyum yang lebih mirip dengan sebuah pengakuan dosa di hadapan Tuhan. Sepanjang hidupnya, sejak dididik keras ketika masih sangat kecil di pesantren Demak untuk tidak cengeng, Ia merasa sebagai orang yang “tertinggal” dalam kesunyian dan kesendirian. Namun, berdiri di trotoar Solo ini, ia menyadari kenyataannya justru terbalik: dialah yang terlalu sering meninggalkan orang lain di tengah jalan. Dialah yang membiarkan pintu-pintu hatinya tertutup rapat tanpa pernah memberikan kata penutup yang layak bagi mereka yang mencoba masuk.
 
 Ingatan itu menyeruak kembali tanpa izin, membawa aroma buku tua dari perpustakaan SMA di Semarang sepuluh tahun yang lalu. Saat itu adalah jam pulang sekolah yang basah oleh gerimis. Larasati Nirmala berjalan di sampingnya di koridor yang sepi, memeluk buku-buku sastra di dadanya seolah-olah sedang menjaga rahasia paling besar di dunia.
 
 “Kamu pernah takut kehilangan seseorang nggak, Ru?” tanya Laras tiba-tiba saat itu. Suaranya kecil, nyaris tenggelam oleh suara hujan yang memukul atap seng sekolah.
 
-Biru remaja, yang saat itu masih terlalu naif dan kaku, hanya tertawa kecil. Ia menendang kerikil di depannya dengan canggung. “Kalau belum punya, kehilangan apa, Lar? Kita kan masih sekolah. Tugas fisika lebih nakutin daripada kehilangan orang,” jawabnya asal, mencoba menutupi kegugupannya.
+Biru remaja, yang saat itu masih terlalu naif dan kaku, hanya tertawa kecil. Ia menendang kerikil di depannya dengan canggung. “Kalau belum punya, lantas akan kehilangan apa, Lar? Kita kan masih sekolah. Tugas Fisika lebih nakutin daripada kehilangan seseorang,” jawabnya asal, mencoba menutupi kegugupannya.
 
-Laras waktu itu hanya diam. Ia menatap lurus ke depan, ke arah lapangan sekolah yang mulai tergenang air, dengan sorot mata sendu yang tidak mampu Biru artikan saat itu. Tapi sekarang, berdiri di tengah pagi Solo yang sunyi, Biru baru sadar sepenuhnya: mungkin sejak dulu Laras sudah mencoba memberitahunya sesuatu tentang komitmen. Mungkin Laras sedang memintanya untuk berhenti menjadi variabel yang tidak pasti. Dan dirinya, dengan segala ego dan ketakutannya, terlalu pengecut untuk mengerti bahwa diamnya Laras saat itu adalah sebuah permohonan agar jangan ditinggalkan.
+Laras waktu itu hanya diam. Ia menatap lurus ke depan, ke arah lapangan sekolah yang mulai tergenang air, dengan sorot mata sendu yang tidak mampu Biru artikan saat itu. Tapi sekarang, berdiri di tengah pagi Solo yang sunyi, Biru baru sadar sepenuhnya: mungkin sejak dulu Laras sudah mencoba memberitahunya sesuatu yaitu tentang komitmen. Mungkin Laras sedang memintanya untuk berhenti menjadi variabel yang tidak pasti. Dan dirinya, dengan segala ego dan ketakutannya, terlalu pengecut untuk mengerti bahwa diamnya Laras saat itu adalah sebuah permohonan agar jangan ditinggalkan.
 
 Biru terbuyar dari lamunannya saat seorang penarik becak menyapanya dengan ramah. Ia menggeleng pelan, lalu melanjutkan langkah menyusuri aspal Solo yang masih lembab. Pikirannya kini terbelah. Di satu sisi, ia merasa sangat merindukan ketenangan yang ditawarkan Laras di kota ini. Namun di sisi lain, bayangan Jingga Maharani muncul dengan payung biru mudanya di Bogor.
 
-Ia teringat betapa hancurnya perasaan Jingga saat ia tidak mengangkat telepon di Jakarta kemarin malam. Gema pesan singkat yang masuk ke ponselnya saat ia masih di Jakarta kembali terngiang jelas: "Aku sudah di bandara. Aku pergi dari Jakarta, Mas". Pesan itu terasa seperti belati yang menusuk ulu hatinya sekarang. Biru merasa seperti seorang pengkhianat; ia melarikan diri ke Solo untuk mencari perlindungan pada masa lalu (Laras) justru setelah ia membiarkan Jingga pergi tanpa suara. Rasa bersalah itu kini mengikuti setiap langkahnya di aspal Solo, memberat seiring dengan setiap jengkal jarak yang ia tempuh menuju Laras.
+Ia teringat dan seakan merasakan betapa hancurnya perasaan Jingga saat ia tidak mengangkat telepon di Jakarta tempo hari kemarin. Gema pesan singkat yang masuk ke ponselnya saat ia masih di Jakarta kembali terngiang jelas: "Aku sudah di bandara. Aku pergi dari Jakarta, Mas". Pesan itu terasa seperti belati yang mencabik ulu hatinya sekarang. Biru merasa seperti seorang pengkhianat; ia melarikan diri ke Solo untuk mencari perlindungan pada masa lalu (Laras) justru setelah ia membiarkan Jingga pergi tanpa suara. Rasa bersalah itu kini mengikuti setiap langkahnya di aspal Solo, memberat seiring dengan setiap jengkal jarak yang ia tempuh menuju Laras.
 
 Di sisi lain kota yang sama, tanpa Biru ketahui sedikit pun, Jingga sedang memulai paginya di kantor kecil itu dengan kegelisahan yang aneh—sebuah rasa tidak tenang yang membuat tangannya gemetar saat memegang cangkir kopi. Sedangkan Larasati Nirmala, yang sedang merapikan meja kerjanya di ruangan yang sama dengan Jingga, mulai merasa bahwa udara hari ini membawa getaran takdir yang sudah lama ia kunci rapat di dalam laci ingatannya.
 
@@ -1786,9 +1784,9 @@ Biru berhenti di sebuah lampu merah kecil dekat jalan utama Slamet Riyadi. Ia me
 
 Pulpennya berhenti di atas kertas, menciptakan noda tinta hitam yang bulat dan pekat. Untuk pertama kalinya sejak perjalanan impulsif ini dimulai dari Stasiun Gambir, Biru merasa sangat takut. Ketakutan ini berbeda dengan ketakutannya saat menghadapi ujian lab Fisika atau tenggat waktu laporan kantor.
 
-Ini adalah ketakutan eksistensial: bagaimana jika semua orang yang selama ini ia hindari—Laras yang merupakan masa lalunya yang belum selesai, dan Jingga yang merupakan masa kininya yang ia gantung tanpa kepastian—akhirnya benar-benar berdiri di depannya secara bersamaan?. Bagaimana jika Solo tidak memberinya suaka, melainkan sebuah cermin besar yang memperlihatkan betapa hancurnya ia sebagai seorang laki-laki?.
+Ini adalah ketakutan eksistensial: bagaimana jika semua orang yang selama ini ia hindari—Laras yang merupakan masa lalunya yang belum selesai, dan Jingga yang merupakan masa kininya yang ia gantung tanpa kepastian—akhirnya benar-benar berdiri di depannya secara bersamaan?. Bagaimana jika Solo tidak memberinya suaka, melainkan memberikan sebuah cermin besar yang memperlihatkan betapa hancurnya ia sebagai seorang laki-laki?.
 
-Ia menutup buku itu dengan gerakan cepat, menimbulkan suara buk yang pelan namun tegas. Solo sudah bangun sepenuhnya. Matahari mulai naik, memantulkan cahaya di kaca-kaca bangunan tua. Kini, Biru Aji Pratama harus memilih: melangkah maju mencari alamat Laras yang tersimpan di sakunya, mencari keberadaan Jingga untuk meminta maaf, atau kembali lari ke stasiun sebelum seluruh luka lama itu terbuka secara permanen dan menghancurkan sisa-sisa hidupnya
+Ia menutup buku itu dengan gerakan cepat, menimbulkan suara buk yang pelan namun tegas. Solo sudah bangun sepenuhnya. Matahari mulai naik, memantulkan cahaya di kaca-kaca bangunan tua. Kini, Biru Aji Pratama harus memilih: melangkah maju mencari alamat Laras yang tersimpan di sakunya, mengumpulkan keberanian untuk menelepon Jingga supaya bisa meminta maaf, atau kembali lari ke stasiun sebelum seluruh luka lama itu terbuka secara permanen dan menghancurkan sisa-sisa hidupnya.
 
 #
 
@@ -1820,7 +1818,7 @@ Jawaban khas Biru. Mengambang, setengah jujur, dan setengah bersembunyi di balik
 
 Mereka akhirnya duduk di sebuah sudut toko buku yang menyediakan dua kursi kayu kecil. Di luar, gerimis mulai turun lagi, membasahi jalanan Solo yang sudah cukup lembab. Awalnya, percakapan mereka bergerak di permukaan, seperti orang asing yang sedang mencoba mencari jalan kembali untuk saling mengenal. Mereka bicara tentang pekerjaan Biru di Jakarta yang penuh dengan data pipeline, tentang kantor Laras yang tenang, hingga kabar-kabar samar tentang teman SMA mereka di Semarang yang sudah banyak menikah.
 
-Tapi semakin lama, diam di antara mereka justru terasa lebih penuh daripada kata-kata yang diucapkan. Biru memperhatikan Laras yang sekarang. Perempuan di depannya terlihat lebih dewasa dan tenang—sifat yang dulu ia sebut sebagai "mendung terus" saat menelepon dari wartel Bogor. Namun matanya masih sama; mata seseorang yang terbiasa menyimpan perasaan terlalu lama demi menjaga perasaan orang lain.
+Tapi semakin lama, diam di antara mereka justru terasa lebih penuh daripada kata-kata yang diucapkan. Biru memperhatikan Laras yang sekarang. Perempuan di depannya terlihat lebih dewasa dan tenang—sifat yang dulu ia sebut sebagai "mendung terus" saat menelepon dari wartel Bogor. Namun matanya masih sama; mata seseorang yang tenang terbiasa menyimpan perasaan terlalu lama demi menjaga perasaan orang lain.
 
 Laras memandang Biru selama beberapa detik sebelum akhirnya berkata dengan nada lirih, "Aku sempat mikir kita nggak bakal ketemu lagi di satu kota, Ru."
 
@@ -1828,7 +1826,7 @@ Biru menunduk, menghindari tatapan Laras yang selalu bisa membacanya. "Aku juga,
 
 Hening kembali turun. Suara rintik hujan yang mengenai kaca toko terdengar seperti detak waktu yang melambat. Lalu, Laras menarik napas panjang dan mengatakan sesuatu yang membuat Biru seketika membeku.
 
-"Aku kenal seseorang dari Jakarta, Ru. Dia rekan kerjaku di sini."
+"Aku kenal seseorang dari Jakarta, Ru. Dia rekan kerjaku di sini. Baru datang beberapa hari yang lalu."
 
 Biru mengangkat wajahnya pelan.
 
@@ -1854,39 +1852,51 @@ Hujan belum berhenti sejak siang. Surakarta terlihat lebih sendu ketika lampu-la
 
 Pikirannya masih tertinggal sepenuhnya pada percakapan semalam di kantor bersama Larasati Nirmala. Tentang satu nama yang sama: Biru Aji Pratama. Tentang satu laki-laki yang ternyata hidup di dua cerita berbeda, di dua buku yang tidak pernah ia duga akan saling bersinggungan. Dan semakin Jingga memikirkannya, semakin banyak hal yang mulai terasa masuk akal secara menyakitkan. Cara Biru yang selalu diam jika ditanya soal masa lalu, cara Biru sering terlihat “setengah hadir” di antara mereka, dan cara matanya kadang seperti sedang menembus kabut Puncak atau hujan Bogor untuk melihat sesuatu yang tidak pernah selesai di belakangnya.
 
-Pintu kedai terbuka. Suara lonceng kecil berbunyi pelan, mengingatkannya pada suara lonceng di toko buku tempat Laras bekerja—tempat yang tanpa ia ketahui, baru saja menjadi saksi pertemuan Biru dan Laras pagi tadi. Jingga tidak langsung menoleh. Sampai ia mendengar suara yang terlalu ia kenal, suara yang dulu sering memanggilnya di kantin FMIPA atau di bawah pohon kapas.
+Pintu kedai kopi berayun terbuka, membawa masuk embusan angin luar yang seketika mengacaukan aroma pekat espresso di hadapan Jingga. Ia tidak langsung mendongak dari cangkirnya; kafe ini cukup bising, dan orang datang serta pergi adalah hal biasa.
 
-“Jingga…”
+Namun, ada sebuah jeda janggal yang mendadak melingkupi meja sudutnya. Suara tarikan kursi kayu yang terseret pelan di dekat bar, gesekan sol sepatu yang familier, hingga getaran udara di sekitarnya mendadak terasa begitu intim—mengirimkan sinyal instan yang membuat dadanya berdesir ngilu.
+
+Jingga membeku saat sebuah bayangan runtuh di atas permukaan mejanya. Belum sempat ia mengangkat wajah, sebuah suara yang teramat ia kenal meluncur di udara—suara berat yang dulu begitu sering memanggil namanya di sepanjang selasar FMIPA atau meredam gemerisik angin di bawah pohon kapas.
+
+"Jingga?"
+
+Detik itu juga, waktu di dalam kedai kopi seperti berhenti berputar. Jingga perlahan mendongak, menantang sepasang mata yang selama ini sengaja ia hindari, menyadari bahwa pelariannya ke kota ini justru membenturkannya tepat pada takdir yang paling ia takuti.
 
 Tubuhnya menegang. Pelan-pelan ia mengangkat wajah. Dan di sana—Biru Aji Pratama berdiri dengan napas sedikit berat, bahunya basah oleh sisa hujan Solo. Wajahnya tampak lebih lelah dari biasanya, membawa sisa-sisa kegoncangan setelah pertemuannya dengan Laras beberapa jam yang lalu.
 
 Hening menyergap. Jakarta, Bogor, halte-halte yang basah, dan percakapan yang selalu ia gantung di Masjid Atta’awun seolah kembali duduk di antara mereka dalam satu detik yang sama. Jingga tidak langsung tersenyum. Tidak juga marah. Ia hanya menatap Biru lama sekali, memastikan bahwa laki-laki ini benar-benar datang menemuinya di Solo, atau hanya bentuk lain dari kerinduan yang belum benar-benar ia relakan.
 
-Biru mendekat perlahan, langkahnya masih membawa keraguan yang sama seperti saat ia berdiri di peron Stasiun Solo Balapan tadi pagi. “Aku nggak nyangka akan bertemu kamu di sini,” ucap Biru pelan.
+Biru mendekat perlahan, langkahnya masih membawa keraguan yang sama seperti saat ia berdiri di peron Stasiun Solo Balapan tadi pagi. Ia berhenti tepat di hadapan meja Jingga, meremas jemarinya yang mendadak dingin.
+
+“Laras yang bilang…” Suara Biru terdengar serak, menggantung di antara aroma kopi yang pekat. “Dia bilang, kalau aku mau mencari kamu di kota ini, di sinilah tempatnya.”
+
+Jingga tidak menjawab, namun jemarinya yang melingkari cangkir tampak mengencang. Ada hantaman emosi yang tidak kasat mata saat nama Laras disebut—sebuah konfirmasi instan bahwa dua orang dari masa lalunya baru saja bertemu, dan kini giliran dirinya yang harus menghadapi sisa-sisa badai itu.
+
+Biru menarik napas berat, menatap lekat-lekat jilbab lembut yang kini membingkai wajah Jingga. “Dia bilang kamu biasa duduk di sini setiap sore. Jadi… aku datang kesini.”
 
 Jingga tertawa kecil, suara tawa yang getir, mengingatkan pada tawa Laras saat mereka pertama kali menyadari nama yang sama itu. “Aku juga nggak nyangka ternyata kamu ada di mana-mana, Mas. Di ceritaku, dan di cerita orang-orang terdekatku.”
 
-Kalimat itu menusuk lebih dalam daripada kemarahan mana pun. Biru duduk di depan Jingga. Untuk pertama kalinya setelah sekian lama, ia terlihat benar-benar gugup, lebih gugup daripada saat ia harus menghadapi revisi dosen di laboratorium fisika. Hujan di luar semakin deras, membungkus kedai itu dalam kesunyian yang intim namun menyesakkan.
+Kalimat itu menusuk lebih dalam daripada kemarahan mana pun. Biru duduk di depan Jingga. Untuk pertama kalinya setelah sekian lama, ia terlihat benar-benar gugup, lebih gugup daripada saat ia harus menghadapi sidang akhir skripsinya dulu. Hujan di luar semakin deras, membungkus kedai itu dalam kesunyian yang intim namun menyesakkan.
 
-Jingga akhirnya berkata, suaranya stabil meski hatinya bergemuruh, “Aku sudah ketemu Laras.”
+Jingga akhirnya berkata, suaranya stabil meski hatinya bergemuruh, “Aku sudah mendengar cerita tentangmu dari Laras.”
 
 Biru diam. Ia tidak terkejut. Mungkin karena sejak ia turun dari kereta malam itu, ia sudah tahu bahwa tabrakan antara masa lalu dan masa kininya tidak akan bisa lagi dihindari. Terlebih setelah Laras menyebut nama "Jingga" di toko buku tadi pagi, Biru sadar dunianya yang terpisah telah runtuh.
 
 Jingga menatapnya lurus, menuntut kejujuran yang dulu pernah ia tagih di halte kampus. “Kenapa kamu nggak pernah cerita tentang dia? Kenapa kamu membiarkan aku menjadi tempat persinggahan tanpa tahu ada rumah lain yang masih kamu tuju?”
 
-Pertanyaan sederhana itu membuat Biru membeku. Seperti biasa, ia menunduk sebentar, tangannya saling menggenggam—sebuah gestur pertahanan yang ia pelajari sejak di pesantren Demak agar tidak ada rasa yang tumpah keluar.
+Pertanyaan sederhana itu membuat Biru membeku. Seperti biasa, ia menunduk sebentar, tangannya saling menggenggam—sebuah gestur pertahanan yang ia pelajari sejak dulu di pesantren Demak agar tidak ada rasa yang tumpah keluar.
 
-“Maaf Jingga.. Mungkin karena aku sendiri belum pernah benar-benar selesai sama masa lalu,” jawab Biru akhirnya. Suaranya serak. “Aku terlalu takut jika aku menceritakannya, semua yang aku bangun di Bogor akan ikut runtuh.”
+“Maaf Jingga.. Mungkin karena aku sendiri belum pernah benar-benar selesai dengan masa laluku,” jawab Biru akhirnya. Suaranya serak. “Aku terlalu takut jika aku menceritakannya, semua yang aku bangun di Bogor akan ikut runtuh.”
 
 Jingga memejamkan mata sesaat. Jawaban itu jujur, namun justru kejujuran itulah yang paling menyakitkan. “Jadi selama ini, aku cuma datang di tengah sesuatu yang belum selesai? Aku cuma pengalihan dari rasa takutmu untuk menghadapi Laras?”
 
-Biru buru-buru menggeleng. “Nggak sesederhana itu, Jingga. Apa yang ada di antara kita di Bogor itu nyata. Payung itu nyata. Bubur ayam itu nyata.”
+Biru buru-buru menggeleng. “Nggak sesederhana itu, Jingga. Apa yang ada di antara kita di Bogor itu nyata. Payung itu nyata. Bubur ayam itu nyata. Kebun raya itu nyata.”
 
 Jingga tersenyum tipis, lelah. “Masalahnya, Ru… hidup nggak selalu nunggu kamu selesai memahami perasaanmu sendiri. Kamu terlalu lambat hadir sepenuhnya, dan akhirnya kamu justru kehilangan arah di antara dua jalan yang sama-sama kamu sayangi.”
 
 Kalimat itu membuat Biru tidak bisa bicara lagi. Jingga telah merangkum seluruh kegagalannya: ketidakmampuan untuk memilih, ketakutan untuk menyakiti yang justru berakhir dengan melukai semua orang.
 
-Hening panjang jatuh di antara mereka. Lalu Jingga berkata pelan, suaranya nyaris hilang ditelan hujan, “Aku dulu kira kamu takut kehilangan aku. Tapi ternyata, kamu lebih takut untuk benar-benar memilih dan menetap tinggal.”
+Hening panjang jatuh di antara mereka. Lalu Jingga berkata pelan, suaranya nyaris hilang ditelan hujan, “Aku dulu kira kamu takut kehilangan aku. Tapi ternyata, kamu lebih takut untuk benar-benar memilih dan menetap untuk tinggal.”
 
 Di luar, hujan turun semakin keras, mengaburkan jalanan Solo. Dan di meja kecil kedai kopi itu, Biru merasa seluruh tembok yang ia bangun di pesantren hingga Jakarta akhirnya runtuh. Sementara itu, di bagian lain kota Solo, Larasati Nirmala mungkin sedang menatap hujan yang sama, menyadari bahwa Solo bukan lagi tempat untuk lari, melainkan titik temu di mana seluruh versi hidup Biru harus berdiri berhadapan.
 
@@ -1894,15 +1904,15 @@ Pernahkah kamu benar-benar jujur pada dirimu sendiri tentang siapa yang sebenarn
 
 # **35 — Surat-Surat yang Tidak Pernah Sampai**
 
-Malam di Surakarta turun pelan bersama hujan yang belum juga selesai sejak sore. Di sebuah kedai kecil dekat jalan Slamet Riyadi, Jingga Maharani dan Larasati Nirmala janjian bertemu dan duduk berhadapan. Tanpa Biru Aji Pratama. Dan anehnya, justru malam itu Biru terasa paling hadir di antara mereka. Cahaya lampu gantung yang redup menciptakan bayangan panjang di atas meja kayu, seolah ada sosok ketiga yang sedang mendengarkan dalam diam.
+Malam di Surakarta turun pelan bersama hujan yang belum juga selesai sejak sore. Di sebuah kedai resto kecil dekat Jalan Slamet Riyadi, Jingga Maharani dan Larasati Nirmala duduk berhadapan tanpa kehadiran Biru Aji Pratama. Namun anehnya, justru malam itu Biru terasa paling hadir di antara mereka. Efek domino dari rangkaian pertemuan hari ini—dimulai dari Laras yang menjumpai Biru di toko buku pada pagi hari, hingga keputusan Laras yang menunjukkan jalan bagi Biru untuk mendatangi Jingga di kedai kopi saat siang—masih menyisakan riak emosi yang kentara. Cahaya lampu gantung yang redup menciptakan bayangan panjang di atas meja kayu, seolah ada sosok ketiga yang sedang mendengarkan dalam diam.
 
-Awalnya mereka hanya bicara soal pekerjaan. Tentang proyek kantor yang belum selesai dan bagaimana Solo terasa semakin dingin kalau habis hujan. Namun, seperti gravitasi yang tak terelakkan, nama itu selalu kembali. Seolah percakapan mereka memang diam-diam menuju satu orang yang sama: Biru Aji Pratama. Apalagi hari ini mereka masing-masing bertemu dengan Biru tanpa saling memberitahu.
+Awalnya mereka hanya mencoba mengalihkan intensitas hari itu dengan bicara soal pekerjaan, proyek kantor yang belum selesai, dan bagaimana Solo terasa semakin dingin pascahujan. Namun, seperti gravitasi yang tak terelakkan, atmosfer meja itu kembali ditarik oleh satu nama yang sama. Tidak ada yang perlu disembunyikan lagi karena mereka berdua tahu persis, Biru telah melewati hari ini dengan menemui mereka berdua secara bergantian.
 
 Jingga memutar perlahan sendok di cangkir tehnya, menatap uap yang mengepul tipis. Lalu ia bertanya pelan, “Dia waktu SMA juga sesusah itu ya buat cerita?”
 
-Laras tersenyum kecil. Bukan senyum kemenangan, melainkan senyum seseorang yang sedang membuka lembar lama dengan sangat hati-hati. “Biru itu kalau lagi sedih justru makin diam. Dia dididik untuk menjadi Kotak pandora yang sarat beban; ia mengunci rapat semua riuh di dalamnya, tahu betul satu tetes saja bocor, semuanya akan hancur.”
+Laras tersenyum kecil. Bukan senyum kemenangan, melainkan senyum seseorang yang sedang membuka lembar lama dengan sangat hati-hati. “Biru itu kalau lagi sedih justru makin diam. Dia dididik untuk menjadi "Kotak pandora yang sarat beban; ia mengunci rapat semua riuh di dalamnya, tahu betul satu tetes saja bocor, semuanya akan hancur.”
 
-Jingga menunduk sebentar, mengingat bagaimana Biru di Bogor selalu punya cara untuk menghindar dari pertanyaan tentang masa lalu. “Iya… aku kenal versi dia yang lebih capek. Versi yang sudah terpoles realita tapi tetap membawa beban yang tidak ia bagi.”
+Jingga menunduk sebentar, mengingat bagaimana Biru di Bogor selalu punya cara untuk menghindar dari pertanyaan tentang masa lalu. “Iya… aku bertemu dia di titik paling lelahnya. Seseorang yang sudah terbiasa menelan masalahnya sendiri, sampai lupa bagaimana caranya berbagi dan mengungkapkan perasaannya”
 
 Hening kecil muncul di antara mereka. Tidak tajam. Tidak bermusuhan. Tapi cukup untuk membuat keduanya sadar bahwa mereka sedang memegang potongan puzzle yang berbeda dari laki-laki yang sama. Laras mengenal akarnya, sementara Jingga mengenal bagaimana batang itu berusaha tumbuh di tengah badai Jakarta.
 
@@ -1930,11 +1940,11 @@ Laras tidak langsung menjawab. Ia menatap tetesan air di kaca jendela cukup lama
 
 Jawaban khas Laras. Tidak langsung, tapi jujur. Lalu gantian Laras bertanya dengan sorot mata yang menuntut kejujuran serupa: “Kalau kamu?”
 
-Jingga tertawa kecil, suara tawa yang lelah namun tulus. “Aku capek sama dia, Laras. Capek menebak diamnya dan menunggu kepastian yang tidak kunjung datang. Tapi anehnya, aku masih ingin mengerti kenapa luka itu begitu dalam. Aku ingin ada di sampingnya supaya dia nggak harus sendirian lagi.”
+Jingga tersenyum kecil, sebuah senyuman lelah namun tulus. “Aku lelah, Laras. Lelah harus selalu menebak apa yang ada di balik diamnya, atau menerka-nerka ke mana arah hubungan kami. Tapi anehnya, setiap kali aku melihat punggungnya, aku selalu ingin melangkah mendekat. Aku hanya ingin berada di sana, memastikan dia tidak harus menghadapi dunianya sendirian lagi.”
 
 Di titik itu, sesuatu berubah secara fundamental di antara mereka. Bukan lagi dua perempuan yang saling curiga, melainkan dua orang yang mulai sadar bahwa musuh terbesar mereka bukan satu sama lain. Melainkan ketidakmampuan Biru menghadapi dirinya sendiri dan ketakutannya untuk memilih yang justru melukai semua orang.
 
-Laras memasukkan kembali surat-surat itu ke dalam tasnya. “Dia dulu pernah cerita, di Demak dia belajar bertahan hidup sendirian. Mencuci baju sendiri, mandi air sumur jam tiga pagi, dan hanya punya surat dari Ibu sebagai harta karun.”
+Laras memasukkan kembali surat-surat itu ke dalam tasnya. “Dia dulu pernah cerita, di Demak dia belajar bertahan hidup sendirian. Mencuci baju sendiri, mandi air sumur jam tiga pagi, dan hanya punya surat dari Ibu sebagai harta karunnya.”
 
 Jingga diam. Untuk pertama kalinya, ia merasa mulai memahami asal karakter yang selama ini dibawa Biru ke mana-mana. Diamnya Biru bukan karena ia tidak peduli, tapi karena ia dididik untuk menjadi kuat dengan cara menyimpan rasa sakitnya sendiri.
 
@@ -1952,7 +1962,7 @@ Kini, ketika Laras menyebut nama "Biru," Jingga langsung tahu siapa yang dimaksu
 
 Saat jam makan siang tiba, mereka memutuskan untuk makan bersama di sebuah warung kecil dekat kantor. Jingga, yang rasa ingin tahunya masih membuncah, tiba-tiba bertanya, “Dia waktu kecil memang tinggal di pesantren terus?”
 
-Laras menggeleng pelan sambil menata sendoknya. “Nggak terus-terusan. Tapi setelah lulus SD, dia memang sempat lama di Demak. Ibunya ingin dia punya fondasi yang kuat.”
+Laras menggeleng pelan sambil menata sendoknya. “Nggak terus-terusan. Tapi sejak masuk SD hingga lulus SMP, dia memang sempat lama di Demak. Ibunya ingin dia punya fondasi yang kuat.”
 
 Jingga mendengarkan dengan serius, ia teringat bagaimana Biru seringkali bersikap sangat formal dan menjaga jarak, sebuah pola yang kini mulai terlihat akarnya. Laras melanjutkan dengan suara yang lebih lembut, “Dia dulu pernah bilang... di pesantren itu dia belajar kalau laki-laki nggak boleh terlalu banyak mengeluh. Diajarkan untuk menjadi kuat dengan cara menyimpan rasa sakitnya sendiri.”
 
@@ -1966,7 +1976,7 @@ Laras meminum tehnya dulu, seolah mengumpulkan kekuatan untuk mengucapkan kebena
 
 Jingga tidak langsung membalas. Untuk pertama kalinya, ada seseorang yang berhasil membaca pola hubungannya dengan Biru secara sangat tepat, bahkan lebih tepat daripada analisisnya sendiri sebagai mahasiswa Matematika. Ada rasa cemburu yang menyelinap kecil di hatinya—bukan karena Laras memiliki masa lalu dengan Biru, melainkan karena kenyataan bahwa Laras mengenal Biru sampai ke lapisan jiwanya yang paling dalam, jauh sebelum Biru belajar menggunakan topeng kedewasaan Jakarta.
 
-Sore harinya, takdir di kota Solo akhirnya bergerak lebih jauh. Biru, yang masih berputar-putar tanpa arah, tanpa sengaja berdiri di dekat gerbang kantor tempat Jingga dan Laras bekerja. Ia melihat Laras dan Jingga berjalan bersama keluar dari gedung kantor. Mereka terlihat sedang tertawa kecil, berbagi satu payung yang sama untuk menghalau gerimis yang kembali turun.
+Sore harinya, takdir di kota Solo akhirnya bergerak lebih jauh. Biru, yang masih berputar-putar tanpa arah, tanpa sengaja akhirnya berdiri di dekat gerbang kantor tempat Jingga dan Laras bekerja. Ia melihat Laras dan Jingga berjalan bersama keluar dari gedung kantor. Mereka terlihat sedang tertawa kecil, berbagi satu payung yang sama untuk menghalau gerimis yang kembali turun.
 
 Langkah Biru langsung terhenti. Dadanya terasa kosong selama beberapa detik. Ia tidak marah, tidak juga takut. Namun ia merasa seperti seseorang yang baru saja terbangun dan menyadari bahwa dua bagian hidup yang selama ini ia jaga agar tetap terpisah, kini telah menyatu. Lebih buruk—atau mungkin lebih baik—lagi, ia menyadari bahwa kedua perempuan ini mungkin sekarang memahami dirinya lebih baik daripada ia memahami dirinya sendiri.
 
@@ -1978,7 +1988,7 @@ Jingga menatapnya selama beberapa detik, sorot matanya tidak lagi penuh tuntutan
 
 Kalimat itu terdengar santai, namun Biru langsung tahu maknanya. Ada banyak hal yang sudah mereka bicarakan tanpa kehadirannya. Ada surat-surat lama yang sudah terbuka, dan ada rahasia pesantren yang sudah terbagi.
 
-Laras memecah ketegangan kecil itu dengan suaranya yang tenang, suara yang selalu menjadi jangkar bagi Biru. “Kita mau cari makan di dekat Slamet Riyadi. Kamu mau ikut?”
+Laras memecah ketegangan kecil itu dengan suaranya yang tenang, suara yang selalu menjadi jangkar bagi Biru. “Kita mau cari makan di dekat Jalan Ahmad Yani. Kamu mau ikut?”
 
 Ajakan itu sederhana, namun bagi Biru, itu terasa seperti berdiri di depan sebuah pintu hidup yang selama ini selalu ia hindari untuk dibuka. Itu adalah ajakan untuk berhenti berlari dan mulai menghadapi konsekuensi dari diamnya selama ini.
 

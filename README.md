@@ -2008,7 +2008,7 @@ Jingga memperhatikan Biru diam-diam dari sudut matanya. Ia baru menyadari sesuat
 
 Muncul api kecil cemburu di hati kedua perempuan itu. Namun anehnya, tidak ada amarah yang mengikuti. Yang ada hanyalah rasa getir yang disertai pemahaman: "Jadi begini ya versi dirinya bersama orang lain..." Sebuah pengakuan diam-diam bahwa Biru memiliki bagian-bagian jiwa yang hanya bisa terbuka oleh kunci yang berbeda.
 
-Pelayan datang membawa teko berisi teh panas tambahan. Kepulan uapnya sejenak menghalangi pandangan mereka satu sama lain, memberikan ruang bernapas yang sangat dibutuhkan. Jingga, yang biasanya lebih berani memecah keheningan, tiba-tiba bertanya, "Ru... kamu dulu beneran betah tinggal di pesantren?"
+Pelayan datang membawa teko berisi teh panas tambahan. Kepulan uapnya sejenak menghalangi pandangan mereka satu sama lain, memberikan ruang bernapas yang sangat dibutuhkan. Jingga, yang biasanya lebih berani memecah keheningan, tiba-tiba bertanya, "Ru... kamu dulu beneran betah tinggal di pesantren sejak kecil?"
 
 Biru sedikit tersentak. Pertanyaan itu terasa seperti ditarik paksa dari bagian terdalam memorinya. Apalagi Laras langsung mengangkat wajahnya dari piring, ikut menunggu jawaban dengan sorot mata yang penuh rasa ingin tahu. Laras sendiri, meski sudah lama mengenal Biru, jarang sekali menyentuh topik tentang masa-masa Biru di pesantren secara mendalam. Bagi Laras, itu adalah "wilayah abu-abu" di mana Biru seringkali menghilang secara emosional.
 
@@ -2038,9 +2038,9 @@ Logistik perjalanan spontan itu mulai dibahas. "Kita bisa berangkat pagi-pagi se
 
 Biru akhirnya tersenyum kecil. Senyum yang benar-benar tulus, yang jarang sekali muncul di wajahnya selama di Solo. "Kalau kalian ikut... aku pulang," ucapnya mantap.
 
-Hening kembali muncul, namun kali ini terasa hangat. Laras tersenyum puas, dan Jingga ikut tersenyum beberapa detik kemudian. Mereka bertiga menyadari bahwa perjalanan ke Semarang esok hari bukan sekadar perjalanan fisik melintasi provinsi. Ini adalah perjalanan untuk membuka kembali kotak pandora yang selama ini tertutup rapat di sebuah rumah di pinggiran Semarang. Bagi Biru, membawa kedua perempuan ini pulang berarti ia siap menunjukkan siapa dirinya sebenarnya—dengan segala luka, diam, dan rahasia yang ia bawa dari pesantren hingga hari ini.
+Hening kembali muncul, namun kali ini terasa hangat. Laras tersenyum puas, dan Jingga ikut tersenyum beberapa detik kemudian. Mereka menyadari bahwa perjalanan ke Semarang esok hari bukan sekadar perjalanan fisik melintasi beberapa kota. Ini adalah perjalanan untuk membuka kembali kotak pandora yang selama ini tertutup rapat di sebuah rumah di pinggiran Semarang. Bagi Biru, membawa kedua perempuan ini pulang berarti ia siap menunjukkan siapa dirinya sebenarnya—dengan segala kerapuhan, diam, dan rahasia yang ia bawa dari pesantren hingga hari ini.
 
-Malam itu diakhiri dengan pembayaran di kasir—mungkin menggunakan QRIS seperti kebiasaan mereka belakangan ini di Solo. Saat mereka melangkah keluar menuju mobil, hujan sudah reda, menyisakan bau tanah yang basah dan udara yang bersih. Perjalanan pulang ke Semarang telah diputuskan, dan bagi mereka bertiga, tidak ada lagi jalan untuk kembali ke posisi mereka yang lama. Cerita yang sebenarnya baru saja dimulai.
+Malam itu diakhiri dengan beberapa lembar uang kertas yang berpindah tangan di meja kasir—sebuah transaksi tunai yang tenang di sudut kedai Solo kala itu. Saat mereka melangkah keluar menuju mobil, hujan sudah reda, menyisakan bau tanah yang basah dan udara yang bersih. Perjalanan pulang ke Semarang telah diputuskan, dan bagi mereka, tidak ada lagi jalan untuk kembali ke posisi mereka yang lama. Cerita yang sebenarnya baru saja dimulai.
 
 #
 

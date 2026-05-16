@@ -2064,7 +2064,7 @@ Biru tidak langsung menjawab. Ia menatap keluar jendela, pada rumah-rumah pendud
 
 Laras langsung menunduk, pura-pura merapikan ujung roknya. Ia tahu kalimat itu bukan cuma tentang kota Semarang. Itu adalah pengakuan Biru tentang betapa ia seringkali merasa tersesat dalam perasaannya sendiri selama merantau di Bogor dan bekerja di Jakarta. Jingga memperhatikan profil wajah Biru selama beberapa detik sebelum berkata pelan, "Padahal ada orang yang selalu nungguin.".
 
-Kalimat itu sederhana, tapi membuat oksigen di dalam gerbong seolah menipis. Biru tidak menjawab. Dan seperti biasa, diamnya justru terasa lebih panjang dan berbicara lebih banyak daripada kata-kata apa pun yang bisa ia susun.
+Kalimat itu sederhana, tetapi sukses menciptakan sekat tak kasat mata yang membuat dada mereka mendadak sesak. Biru tidak menjawab. Dan seperti biasa, diamnya justru terasa lebih panjang dan berbicara lebih banyak daripada kata-kata apa pun yang bisa ia susun.
 
 Untuk memecah suasana yang mulai memberat, Laras akhirnya membuka tas kecilnya. Ia mengeluarkan sebuah kamera analog lama yang bodinya sudah mulai aus. "Masih inget ini?" tanyanya sambil menunjukkan benda itu kepada Biru.
 
@@ -2154,19 +2154,21 @@ Jingga duduk di kursi kayu di sebelah Biru. "Ibumu baik banget, Mas. Beliau ceri
 
 Biru tertawa kecil. "Ibu memang paling tahu cara ngebongkar rahasiaku."
 
-"Mas..." Jingga menatap ke depan, ke arah kegelapan gang. "Terima kasih ya sudah diajak pulang. Aku jadi tahu, kenapa kamu selalu bilang 'ingin pulang'. Rumah ini... rasanya tenang banget."
+"Mas..." Jingga menatap ke depan, ke arah kegelapan gang yang mulai basah oleh air hujan. "Terima kasih ya sudah diajak mampir ke sini. Aku jadi tahu kenapa kamu selalu bilang 'ingin pulang'. Rumah ini... rasanya tenang banget, walaupun aku cuma bertamu sebentar."
 
-Biru menoleh ke arah Jingga. Di bawah lampu teras yang temaram, wajah Jingga terlihat begitu teduh. Biru ingin mengatakan sesuatu, ingin memberikan kepastian yang diminta Jingga di halte Jakarta waktu itu, tapi suaranya tertahan di tenggorokan.
+Biru menoleh ke arah Jingga. Di bawah lampu teras yang temaram, wajah Jingga terlihat begitu teduh di balik balutan hijabnya. Biru ingin mengatakan sesuatu, ingin memberikan kepastian yang selama ini menggantung di antara mereka sebelum malam makin larut dan mobil sewaan mengantar Jingga menuju rumah Laras untuk menginap. Namun, suaranya kembali tertahan di tenggorokan.
 
-Di saat yang sama, Laras berdiri di balik tirai jendela ruang tamu, melihat punggung Biru dan Jingga yang duduk bersisian di teras. Ia tersenyum getir. Ia menyadari bahwa di rumah ini, di tempat di mana ia dulu sering mengirim surat dengan harapan Biru akan kembali kepadanya, kini ada warna lain yang lebih nyata hadir di samping Biru. Laras menutup tirai itu perlahan, menyadari bahwa perjalanan ini memang perjalanan untuk melepaskan, bukan untuk mengikat kembali.
+Di saat yang sama, Laras melangkah keluar dari pintu ruang tamu, memecah keheningan di antara mereka berdua dengan langkah yang anggun namun sarat pengertian. Ia membawa tas kecilnya, memberi isyarat bahwa malam sudah terlalu larut dan mereka harus segera pamit pulang ke rumahnya.
 
-Malam itu, di rumah yang membesarkannya, Biru akhirnya menyadari satu hal: ia tidak bisa selamanya menjadi orang yang "menahan rasa di balik dada" seperti yang ia pelajari di pesantren. Ia harus bicara, sebelum hujan di Semarang benar-benar reda dan membawa mereka kembali ke kenyataan masing-masing.
+Laras menatap punggung Biru dan Jingga yang sempat duduk bersisian di teras, lalu tersenyum tipis—sebuah senyuman getir yang ia sembunyikan dengan rapi. Di rumah ini, di tempat di mana ia dulu sering menantikan surat-surat balasan dari Biru, Laras menyadari ada warna lain yang kini jauh lebih nyata hadir di samping pria itu. Perjalanan mengantar Jingga malam ini ke rumahnya sendiri seolah menjadi penegasan, bahwa tugasnya kini adalah melepaskan, bukan lagi untuk mengikat kembali.
+
+Setelah pamitan yang hangat dengan Ibu dan Bapak selesai, deru mesin mobil sewaan kecil itu perlahan menjauh, membelah rintik hujan Semarang dan membawa kedua perempuan itu pergi dari pandangannya. Biru kembali berdiri di teras sendirian, menatap jalanan gang yang basah. Di rumah yang membesarkannya ini, ia akhirnya menyadari satu hal: ia tidak bisa selamanya menjadi bejana yang menampung segala riuh di batinnya sendiri. Ia harus segera bicara dan mengambil keputusan, sebelum hujan di Semarang benar-benar reda dan membawa mereka semua kembali ke kenyataan masing-masing
 
 #
 
 # **40 — Demak dan Hal-Hal yang Tidak Pernah Diceritakan**
 
-Pagi berikutnya di Semarang datang bersama suara ayam kampung yang bersahut-sahutan dan aroma teh panas wasgitel yang menyeruak dari dapur. Rumah keluarga Biru Aji Pratama terasa lebih hidup dari biasanya, seolah dinding-dinding tua itu baru saja mendapatkan napas baru. Ibunya beberapa kali tertangkap kamera batin Biru sedang tersenyum sendiri sembari menata piring sarapan, menatap rumahnya yang kembali ramai oleh jiwa-jiwa muda.
+Pagi berikutnya di Semarang datang bersama suara ayam kampung yang bersahut-sahutan dan aroma teh panas wasgitel yang menyeruak dari dapur. Suasana rumah keluarga Biru Aji Pratama terasa lebih hangat sejak ketukan pintu terdengar lebih awal; Laras dan Jingga datang memenuhi undangan sarapan dari Ibu Biru yang disampaikan semalam. Kehadiran kedua perempuan itu membuat dinding-dinding tua rumah kembali hidup, seolah mendapatkan napas baru. Ibunya beberapa kali tertangkap kamera batin Biru sedang tersenyum sendiri sembari menata piring sarapan, menatap meja makannya yang kini ramai oleh jiwa-jiwa muda.
 
 Saat sarapan berlangsung tenang dengan menu nasi liwet sederhana, Ibu Biru tiba-tiba berkata santai tanpa mengalihkan pandangan dari sendoknya, “Sekalian saja ajak mereka ke Demak.”
 
@@ -2288,29 +2290,21 @@ Biru menatap Laras dan Jingga dari kejauhan. Tanpa tahu isi percakapan mereka, i
 
 # **43 — Pengakuan yang Terlambat**
 
-Malam di Semarang terasa tenang setelah mereka pulang dari Demak. Rumah keluarga Biru Aji Pratama mulai sepi, hanya menyisakan suara jangkrik dari kebun samping dan detak jam dinding di ruang tengah yang terdengar lebih keras dari biasanya. Ibunya sudah tidur lebih dulu, kelelahan setelah seharian penuh semangat menyambut kepulangan anak laki-lakinya. Sedangkan Jingga Maharani memilih masuk ke kamar tamu lebih awal; perjalanan emosional ke pesantren tadi siang tampaknya benar-benar menguras energinya.
+Malam di Semarang terasa tenang setelah mereka pulang dari Demak. Rumah keluarga Biru Aji Pratama mulai sepi, hanya menyisakan suara jangkrik dari kebun samping dan detak jam dinding di ruang tengah yang terdengar lebih keras dari biasanya. Ibunya sudah tidur lebih dulu, kelelahan setelah seharian penuh semangat menyambut kepulangan anak laki-lakinya. Setelah malam sempat larut oleh agenda mengantar Jingga beristirahat di rumah keluarga Laras, Larasati Nirmala justru kembali ke rumah itu sendirian. Ada ketukan pelan di pintu yang membuat Biru terkejut, sebelum akhirnya mereka berakhir duduk berhadapan di teras.
 
-Di teras rumah, lampu kecil berwarna kuning masih menyala redup, bergoyang pelan setiap kali angin malam Semarang yang membawa aroma tanah basah dan sisa payau laut berhembus. Larasati Nirmala duduk sendiri di kursi rotan, memegang segelas teh hangat yang uapnya sudah menghilang. Ia menatap kegelapan gang di depan rumah dengan tatapan yang sulit diartikan—tatapan seseorang yang sedang menunggu waktu berhenti memihak padanya.
+Di teras rumah, lampu kecil berwarna kuning masih menyala redup, bergoyang pelan setiap kali angin malam Semarang yang membawa aroma tanah basah dan sisa payau laut berembus. Laras duduk di kursi rotan, memegang segelas teh hangat pemberian Biru yang uapnya sudah menghilang. Ia menatap kegelapan gang di depan rumah dengan tatapan yang sulit diartikan—tatapan seseorang yang sedang menunggu waktu berhenti memihak padanya."Belum tidur?" tanya Biru pelan, memecah kesunyian malam yang sempat menggantung di antara mereka.
 
-Tak lama kemudian, pintu kayu jati itu berderit pelan. Biru keluar dari dalam rumah, masih mengenakan kemeja kotak-kotak yang sama dengan yang ia pakai ke Demak, namun kancing atasnya sudah terbuka.
-
-"Belum tidur?" tanya Biru pelan, suaranya hampir menyatu dengan kesunyian malam.
-
-Laras tersenyum kecil tanpa menoleh. "Masih belum ngantuk. Udara Semarang malam ini rasanya... sayang kalau dilewatkan begitu saja."
+Laras tersenyum kecil tanpa menoleh. "Masih belum ngantuk. Udara Semarang malam ini rasanya... sayang kalau dilewatkan begitu saja. Lagipula, aku memang butuh bicara berdua sama kamu, Ru."
 
 Biru duduk di kursi sebelahnya. Tidak terlalu dekat, menjaga jarak yang selama bertahun-tahun ini mereka anggap sebagai "ruang aman". Seperti dua orang yang sama-sama tahu bahwa ada terlalu banyak hal lama, terlalu banyak surat yang belum terbalas, dan terlalu banyak janji yang menguap di antara mereka. Beberapa saat mereka hanya diam, mendengarkan suara televisi samar dari rumah tetangga dan bunyi motor yang sesekali lewat di gang depan.
 
-Lalu Laras berkata pelan, "Aku baru sadar, Ru... kamu benar-benar beda kalau lagi sama Jingga."
+Lalu Laras berkata pelan, "Aku baru sadar seharian ini... kamu benar-benar beda kalau lagi sama Jingga."
 
-Biru diam. Tangannya memutar-mutar gelas kosong di meja.
-
-Laras tertawa kecil, suara tawanya terdengar getir namun tulus. "Tenang saja. Itu bukan protes. Itu cuma… hasil observasi."
+Biru diam. Tangannya memutar-mutar gelas kosong di meja.Laras tertawa kecil, suara tawanya terdengar getir namun tulus. "Tenang saja. Itu bukan protes. Itu cuma… hasil observasi."
 
 Biru menunduk kecil sambil tersenyum tipis. Ekspresi yang dulu sangat sering Laras lihat saat mereka masih mengenakan seragam abu-abu di SMA Semarang: ekspresi Biru ketika ia tersudut oleh kejujuran dan tidak tahu harus menjawab apa dengan bahasa manusia.
 
-"Aku dulu sempat mikir," kata Laras perlahan, suaranya mulai bergetar tipis. "Mungkin kalau kita ketemu lagi di Solo, atau kalau kamu pulang ke Semarang, semuanya bakal kembali sama. Kayak kita cuma perlu memutar balik waktu sebentar."
-
-Angin malam bergerak lembut, memainkan ujung jilbab Laras.
+"Aku dulu sempat mikir," kata Laras perlahan, suaranya mulai bergetar tipis. "Mungkin kalau kita ketemu lagi di Solo, atau kalau kamu pulang ke Semarang, semuanya bakal kembali sama. Kayak kita cuma perlu memutar balik waktu sebentar."Angin malam bergerak lembut, memainkan ujung jilbab Laras.
 
 "Tapi ternyata orang memang berubah ya," lanjut Laras. "Waktu itu kejam. Dia nggak pernah nunggu kita selesai sama urusan masing-masing."
 
@@ -2334,7 +2328,7 @@ Udara malam Semarang seolah berhenti bergerak. Namun Laras tidak menangis hebat.
 
 Kalimat itu membuat dada Biru terasa sangat berat. Ia teringat surat Laras di Bogor yang memintanya agar jangan sampai kota baru membuatnya lupa cara untuk pulang. Kini ia sadar, selama ini Laras mungkin tidak pernah benar-benar meminta untuk dipilih kembali. Laras hanya ingin Biru berani menjadi laki-laki yang punya arah, bukan laki-laki yang selalu tersesat di dalam dirinya sendiri.
 
-Laras menghela nafas panjang, melepaskan sisa-sisa harapan yang ia simpan di dalam buku puisi lamanya. "Dia ngerti kamu dengan cara yang beda, Ru. Dia tahu cara ngaduk buburmu biar rasanya nyatu. Dia tahu cara maksa kamu buat nggak pura-pura kuat terus. Dan mungkin... itu yang selama ini kamu butuhin. Seseorang yang nggak cuma nunggu kamu pulang, tapi seseorang yang nemenin kamu selama perjalanan."
+Laras menghela napas panjang, melepaskan sisa-sisa harapan yang ia simpan di dalam buku puisi lamanya. "Dia ngerti kamu dengan cara yang beda, Ru. Dia tahu cara ngaduk buburmu biar rasanya nyatu. Dia tahu cara maksa kamu buat nggak pura-pura kuat terus. Dan mungkin... itu yang selama ini kamu butuhin. Seseorang yang nggak cuma nunggu kamu pulang, tapi seseorang yang nemenin kamu selama perjalanan."
 
 Biru menatap Laras dengan rasa bersalah yang teramat dalam. Namun Laras justru menggeleng pelan, menghapus satu tetes air mata yang akhirnya lolos di sudut matanya.
 
@@ -2342,21 +2336,19 @@ Biru menatap Laras dengan rasa bersalah yang teramat dalam. Namun Laras justru m
 
 Malam itu, di rumah kecil tempat semuanya dulu dimulai dengan percakapan malu-malu di perpustakaan SMA, Biru Aji Pratama akhirnya melakukan hal yang paling lama ia hindari: ia berhenti menjadi "Mas Jawa yang ribet" dan menjadi laki-laki yang jujur pada hatinya sendiri.
 
-"Maafin aku, Ras," kata Biru lirih.
+"Maafin aku, Ras," kata Biru lirih.Laras tersenyum, kali ini lebih lebar, meski matanya masih basah. Ia berdiri, merapikan tas kecilnya, lalu bersiap melangkah menuju mobil sewaan untuk pulang ke rumahnya sendiri, tempat Jingga sudah tertidur pulas.
 
-Laras tersenyum, kali ini lebih lebar, meski matanya masih basah. "Jangan minta maaf. Aku justru lega. Setidaknya sekarang aku tahu, rumahmu bukan lagi di masa lalu kita."
+"Jangan minta maaf. Aku justru lega. Setidaknya sekarang aku tahu, rumahmu bukan lagi di masa lalu kita." Laras menatap Biru untuk terakhir kalinya malam itu sebagai seseorang yang pernah memiliki hatinya secara utuh. "Besok, temui dia. Jangan sampai dia nunggu jawaban yang sudah kamu punya malam ini."
 
-Laras berdiri, merapikan kursi rotannya, lalu menatap Biru untuk terakhir kalinya malam itu sebagai seseorang yang memiliki hatinya secara utuh. "Besok, kasih tahu dia. Jangan sampai dia nunggu jawaban yang sudah kamu punya malam ini."
-
-Laras melangkah masuk ke dalam rumah, meninggalkan Biru yang masih terpaku di teras. Angin malam kembali lewat, lampu teras bergoyang sedikit, dan untuk pertama kalinya, Biru tidak lagi merasa tersesat. Hujan di Semarang belum turun, tapi di dalam dirinya, kabut yang selama ini menutupinya sudah benar-benar hilang.
+Laras melangkah meninggalkan teras, masuk ke dalam mobil, dan deru mesinnya perlahan menjauh membelah malam. Biru masih terpaku di posisinya. Angin malam kembali lewat, lampu teras bergoyang sedikit, dan untuk pertama kalinya, Biru tidak lagi merasa tersesat. Hujan di Semarang belum turun, tapi di dalam dirinya, kabut yang selama ini menutupinya sudah benar-benar hilang.
 
 #
 
 # **44 — Orang yang (akhirnya) Dipilih untuk Tinggal**
 
-Pagi terakhir mereka di Semarang datang bersama langit abu muda dan udara yang masih dingin sisa hujan malam. Rumah keluarga Biru Aji Pratama kembali sibuk oleh suara gemerisik di dapur dan aroma nasi goreng yang gurih bercampur asap kayu bakar, sebuah simfoni pagi buatan ibunya yang selalu berhasil memanggil nyawa kembali ke raga. Namun, di balik suasana sederhana yang penuh kehangatan itu, masing-masing dari mereka tahu bahwa sesuatu telah bergeser secara fundamental sejak perjalanan kontemplatif ke Demak kemarin.
+Pagi terakhir mereka di Semarang datang bersama langit abu muda dan udara yang masih dingin sisa hujan malam. Suasana di rumah keluarga Biru Aji Pratama kembali hangat sejak ketukan pintu terdengar lebih awal; Laras dan Jingga baru saja datang dari rumah keluarga Laras untuk berkumpul kembali sebelum jadwal kepulangan mereka. Dapur segera sibuk oleh suara gemerisik dan aroma nasi goreng yang gurih bercampur asap kayu bakar, sebuah simfoni pagi buatan ibunya yang selalu berhasil memanggil nyawa kembali ke raga. Namun, di balik suasana sederhana yang penuh kehangatan itu, masing-masing dari mereka tahu bahwa sesuatu telah bergeser secara fundamental sejak perjalanan kontemplatif ke Demak kemarin, ditambah obrolan jujur antara Biru dan Laras di teras semalam.
 
-Larasati Nirmala terlihat paling tenang pagi itu. Ia membantu ibu Biru menyiapkan sarapan dengan gerakan yang luwes, persis seperti sepuluh tahun lalu saat ia masih sering mampir ke rumah ini sepulang sekolah di Semarang. Ia memotong bawang dan menata piring tanpa banyak bicara, sebuah bentuk pengabdian terakhir pada kenangan yang pernah ia jaga begitu erat.
+Larasati Nirmala terlihat paling tenang pagi itu. Begitu tiba, ia langsung menawarkan diri membantu ibu Biru menyiapkan sarapan dengan gerakan yang luwes, persis seperti sepuluh tahun lalu saat ia masih sering mampir ke rumah ini sepulang sekolah di Semarang. Ia memotong bawang dan menata piring tanpa banyak bicara, sebuah bentuk pengabdian terakhir pada kenangan yang pernah ia jaga begitu erat.
 
 Sedangkan Jingga Maharani duduk di kursi kayu ruang tengah, jemarinya perlahan menyusuri pigura-pigura foto lama yang menempel di dinding ruang tamu. Di salah satu foto yang sudah sedikit menguning, ada Biru kecil memakai peci hitam dan sarung, berdiri canggung dengan sorot mata yang waspada di depan gerbang pesantren Demak. Jingga tersenyum kecil sendiri. Entah kenapa, ia mulai menyukai versi hidup yang pelan seperti ini—sebuah kontras tajam dari hiruk-pikuk Jakarta yang dulu pernah "menelan" banyak hal dalam hidup mereka.
 

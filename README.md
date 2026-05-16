@@ -974,7 +974,7 @@ Saat mereka berjalan menyusul yang lain, foto itu masih terbuka di layar ponsel 
 
 Hujan di kawasan Puncak belum sepenuhnya selesai sejak siang tadi. Kabut turun pelan, menutup bukit-bukit seperti tirai tipis yang enggan dibuka. Rombongan mahasiswa dari organisasi koran kampus IPB baru saja tiba di area istirahat setelah liputan lapangan yang melelahkan. Mereka berkumpul di dalam Masjid Atta’awun, mencari tempat kering sambil merapikan alat tulis, kamera, dan catatan wawancara yang lembab oleh udara pegunungan.
 
-Biru Aji Pratama duduk di sudut pelataran masjid, jaketnya masih basah oleh gerimis perjalanan. Di tangannya, ada laptop yang baru saja ia buka, berisi draf teknis peliputan dan data tambahan yang harus ia olah nanti. Sebagai mahasiswa jurusan Fisika, ia memiliki kebiasaan membuat segala sesuatu ingin ia pahami secara runtut—terukur, logis, tanpa celah. Namun hari ini, pikirannya tidak mengikuti pola itu. Di saku tasnya, amplop coklat dari ibunya dan bayangan surat untuk Larasati Nirmala terasa seperti beban massa yang mengganggu gravitasi batinnya.
+Biru Aji Pratama duduk di sudut pelataran masjid, jaketnya masih basah oleh gerimis perjalanan. Di tangannya, ada laptop yang baru saja ia buka, berisi draf teknis peliputan dan data tambahan yang harus ia olah nanti. Sebagai mahasiswa jurusan Fisika, ia memiliki kebiasaan membuat segala sesuatu yang ingin ia pahami disusun secara runtut—terukur, logis, tanpa celah. Namun hari ini, pikirannya tidak mengikuti pola itu. Di saku tasnya, amplop coklat dari ibunya dan bayangan surat untuk Larasati Nirmala terasa seperti beban massa yang mengganggu gravitasi batinnya.
 
 Di sisi lain, Jingga Maharani berdiri sambil mengecek daftar tugas anggota. Mahasiswi Matematika itu tampil rapi dan sistematis dalam membagi peran.
 
@@ -1000,19 +1000,19 @@ Jingga kemudian mendekati Biru. “Mas Biru.”
 
 Di luar sana, kabut Puncak bergerak pelan, menutupi jalan dan pohon-pohon teh di kejauhan. Suasana masjid menjadi semakin hening.
 
-“Mas,” kata Jingga lagi, lebih pelan. “Kamu lagi capek sama aku ya?”
+“Mas,” kata Jingga lagi, lebih pelan. “Kamu lagi kesel sama aku ya?”
 
 “Nggak,” jawab Biru refleks. Terlalu kuat untuk sesuatu yang katanya tidak ada.
 
 Beberapa jam kemudian, liputan mulai mereda. Jingga menutup laptopnya lebih dulu. “Mas Biru. Kamu tahu nggak? Kalau seseorang mulai terasa jauh, biasanya bukan karena langkahnya menjauh.” Ia berhenti sebentar. “Kadang karena dia sudah berdiri terlalu lama di tempat yang bukan sepenuhnya miliknya.”
 
-Biru terdiam. Tangannya berhenti di atas keyboard. Ia menyadari kalimat Jingga terlalu tepat untuk dianggap kebetulan. Di kepalanya, bayangan Laras di perpustakaan SMA Semarang dan peringatan ibunya tentang "hati perempuan yang bisa jadi batu" beradu dengan kehadiran Jingga di sini.
+Biru terdiam. Tangannya berhenti di atas keyboard. Ia menyadari kalimat Jingga terlalu tepat untuk dianggap kebetulan. Di kepalanya, bayangan Laras di perpustakaan SMA Semarang dan nasehat ibunya tentang "hati perempuan lembut namun bisa berubah jadi batu" beradu dengan kehadiran Jingga di sini.
 
 Jingga berdiri, merapikan tasnya. Sebelum melangkah pergi mengikuti rombongan, ia berhenti di dekat pintu masjid. Tanpa menoleh, ia berucap lirih, “Mas Biru. Kalau kamu lagi bingung… jangan jadikan aku tempat persinggahan.”
 
 Biru tetap duduk di tempatnya. Kabut di luar Masjid Atta’awun sudah hampir hilang, tapi di dalam dirinya, sesuatu justru mulai turun lagi—pelan, berat, dan tidak punya jalan keluar yang jelas. Ia menyadari bahwa diamnya selama ini bukan sekadar jeda, tapi keputusan yang perlahan menggeser orang-orang yang peduli menjauh darinya.
 
-Berlanjutnya hari di Puncak ini menjadi saksi bisu bagi Biru, yang kini harus berhadapan dengan energi kinetik tak terduga dari kehadiran Raka. Raka tidak hanya menawarkan bantuan teknis, tetapi juga kehadiran yang nyata, seperti saat ia dengan sigap menawarkan payungnya ketika hujan kembali mengguyur area parkir bawah. Biru hanya bisa menatap dari kejauhan, menyadari bahwa variabel "Raka" telah mengubah seluruh sistem yang ia bangun.
+Berlanjutnya hari di Puncak ini menjadi saksi bisu bagi Biru, yang kini harus berhadapan dengan energi kinetik tak terduga dari kehadiran Raka. Raka tidak hanya menawarkan bantuan teknis, tetapi juga perhatian yang nyata, seperti saat ia dengan sigap menawarkan payungnya ketika hujan kembali mengguyur area parkir bawah. Biru hanya bisa menatap dari kejauhan, menyadari bahwa variabel "Raka" telah mengubah seluruh sistem yang ia bangun.
 
 "Aku nggak mau kamu ngerasa sendirian di sini," bisik Biru pada dirinya sendiri, namun suaranya hilang ditelan suara angin Puncak yang dingin. Ia tahu bahwa ia sedang kehilangan arah, terjebak di antara masa lalu yang ia simpan di dalam amplop coklat dan masa kini yang mulai lelah menunggunya untuk hadir sepenuhnya.
 

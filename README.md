@@ -1256,7 +1256,7 @@ Salsa dan Fikri, meski berada di luar pusaran utama, menjadi saksi bisu bagaiman
 
 # **21 — Naik Angkot Terminal Bubulak**
 
-Sore itu di Bogor, langit tidak memberikan perpisahan yang manis. Hujan turun dengan cara yang paling ia kuasai: menderas tanpa ampun, membasuh aspal Jalan Otista hingga mengkilap di bawah lampu jalan yang mulai menyala satu per satu. Biru Aji Pratama berdiri di trotoar yang sempit, memegang map plastik berisi draft tugas akhir yang sudah ditandatangani oleh dosen pembimbing. Seharusnya ada rasa lega yang meluap, namun yang ia rasakan justru sebuah ruang hampa yang menyesakkan.
+Sore itu di Bogor, langit tidak memberikan perpisahan yang manis. Hujan turun dengan cara yang paling ia kuasai: menderas tanpa ampun, membasuh aspal jalan Bara Dramaga hingga mengkilap di bawah lampu jalan yang mulai padam satu per satu. Biru Aji Pratama berdiri di trotoar yang sempit, memegang map plastik berisi draft tugas akhir yang sudah ditandatangani oleh dosen pembimbing. Seharusnya ada rasa lega yang meluap, namun yang ia rasakan justru sebuah ruang hampa yang menyesakkan.
 
 Empat tahun ternyata bisa berlalu secepat itu. Anak laki-laki yang dulu datang dari Semarang dengan wajah canggung itu, kini sudah berada di penghujung masa kuliahnya. Biru melangkah naik ke angkot biru jurusan Terminal Bubulak yang baru saja berhenti dengan suara mesin kasar. Di dalam, ia melihat seorang perempuan duduk dekat jendela, mengenakan hijab warna lembut yang membingkai wajahnya dengan tenang.
 
@@ -1278,17 +1278,17 @@ Biru terdiam. Ia teringat kembali pada fase isolasi dirinya, pada surat-surat La
 
 Biru mengangguk pelan. "Iya ya."
 
-"Kalau nanti kita udah nggak sering naik angkot bareng lagi… kamu bakal lupa sama aku nggak?" Pertanyaan itu sederhana, namun sanggup membuat dada Biru terasa sempit sesaat.
+"Kalau nanti kita udah nggak sering naik angkot bareng lagi… Kamu bakal lupa sama aku nggak?" Pertanyaan itu sederhana, namun sanggup membuat dada Biru terasa sempit sesaat.
 
 "Enggak," jawab Biru, lebih cepat daripada pikirannya sendiri.
 
 Jingga tersenyum lega. Angkot memasuki kawasan Baranangsiang, gedung FMIPA terlihat samar di balik kabut. Jingga turun lebih dulu, melangkah menuju gerbang kampus dengan langkah yang lebih pasti. Biru tetap duduk, menatap punggung Jingga yang perlahan menghilang. Ia menyadari sesuatu yang menakutkan: bahwa kebiasaan adalah bentuk paling sunyi dari kedekatan, dan ia baru saja membayangkan hidup tanpa kehadiran Jingga.
 
-Beberapa minggu kemudian, di bawah atap Grha Widya Wisuda, aroma bunga melati dan riuh rendah suara keluarga memenuhi udara. Biru berdiri dengan toga hijau yang terasa berat namun membanggakan. Di sudut barisan kursi orang tua, ia melihat sosok Ibu dan Bapak yang sengaja datang dari Semarang. Ibu berkali-kali mengusap matanya dengan ujung jilbab, sementara Bapak berdiri tegak dengan sorot mata yang tak bisa menyembunyikan rasa lega.
+Beberapa minggu kemudian, di bawah atap Grha Widya Wisuda, aroma bunga melati dan riuh rendah suara keluarga memenuhi udara. Biru berdiri dengan toga hitam yang terasa berat namun membanggakan. Di sudut barisan kursi orang tua, ia melihat sosok Ibu dan Bapak yang sengaja datang dari Semarang. Ibu berkali-kali mengusap matanya dengan ujung kerudung, sementara Bapak berdiri tegak dengan sorot mata yang tak bisa menyembunyikan rasa lega.
 
-Momen itu diabadikan dalam sebuah foto besar: Biru berdiri kaku di antara kedua orang tuanya, sebuah potret keberhasilan yang nantinya akan terpajang di ruang tamu rumah Semarang, menjadi saksi bisu bagi Jingga suatu hari nanti saat ia akhirnya "pulang" ke sana.
+Momen itu diabadikan dalam sebuah foto besar: Biru berdiri kaku di antara kedua orang tuanya, sebuah potret keberhasilan yang nantinya akan terpajang di ruang tamu rumah Semarang, menjadi saksi bisu bagi perjuangan Biru dalam menaklukan dingin dan sunyinya riuh badai di dalam kepala saat menempa diri di Bogor Kota Hujan.
 
-Jingga tampak sangat teduh dengan hijabnya, menatap kerumunan itu dari kejauhan. Tidak ada perayaan besar di antara mereka, hanya sebuah janji bisu di terminal Bubulak yang masih menggantung. Biru tahu, setelah ini ia akan ke Jakarta, dan ia tidak tahu bahwa Jingga akan segera berangkat ke Solo—kota yang selama ini menjadi asal dari surat-surat yang ia sembunyikan.
+Jingga tampak sangat teduh dengan hijabnya, menatap kerumunan itu dari kejauhan. Tidak ada perayaan besar di antara mereka, hanya sebuah janji bisu di terminal Bubulak yang masih menggantung. Biru tahu, setelah ini ia akan ke Jakarta. Di saat ia bersiap melangkah ke arah barat, semesta justru sedang diam-diam merajut benang takdir Jingga menuju ke arah sebaliknya—menuju episentrum masa lalu yang selalu berusaha Biru hindari.
 
 Masa Bogor telah usai, namun perjalanan untuk benar-benar "pulang" baru saja dimulai.
 
@@ -2106,7 +2106,7 @@ Jingga melangkah maju, sedikit menunduk, lalu menyalami tangan Ibu. "Jingga, Tan
 
 "Mampir, mampir. Ayo masuk semua. Bapak lagi di belakang, paling lagi benerin kipas angin," ajak Ibu dengan nada ceria yang dipaksakan untuk menutupi rasa harunya.
 
-Rumah itu tidak banyak berubah. Di ruang tamu, masih ada foto wisuda Biru yang di bingkai besar—foto di mana Biru berdiri kaku dengan toga hijau, sementara Ibu dan Bapak tersenyum bangga di sampingnya. Jingga menatap foto itu cukup lama. Ia melihat Biru dalam versi yang paling murni, anak laki-laki dari gang sempit yang berhasil menembus tembok FMIPA IPB.
+Rumah itu tidak banyak berubah. Di ruang tamu, masih ada foto wisuda Biru yang di bingkai besar—foto di mana Biru berdiri kaku dengan toga hitam, sementara Ibu dan Bapak tersenyum bangga di sampingnya. Jingga menatap foto itu cukup lama. Ia melihat Biru dalam versi yang paling murni, anak laki-laki dari gang sempit yang berhasil menembus tembok FMIPA IPB.
 
 "Duduk dulu ya, Ibu buatin teh," kata Ibu.
 

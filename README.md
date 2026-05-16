@@ -1030,7 +1030,7 @@ Pagi di Kampus IPB Baranangsiang datang seperti biasa—lembap, sedikit dingin, 
 
 Di meja redaksi, papan tugas baru telah ditempel: Liputan Lanjutan: Puncak – Dampak Wisata dan Perubahan Ekonomi Lokal. Biru membaca baris tugasnya: Koordinasi Ulang Data & Penulisan Utama: Biru Aji Pratama, dengan nama Jingga Maharani tepat di bawahnya. Nama itu seperti variabel yang kini paling sulit ia selesaikan.
 
-Di sisi lain ruangan, Biru melihat Raka mendekati meja Jingga. Raka, mahasiswa tingkat atas jurusan Komunikasi yang selalu tampil penuh percaya diri dengan jaket varsity hitamnya, meletakkan secangkir kopi di depan Jingga. Raka tidak bertanya "Apakah kamu mau kopi?"; ia langsung meletakkannya seolah ia memiliki insting yang lebih tajam daripada Biru tentang apa yang Jingga butuhkan saat kelelahan melanda.
+Di sisi lain ruangan, Biru melihat Raka mendekati meja Jingga. Raka, mahasiswa tingkat atas jurusan Ilmu Komputer yang selalu tampil penuh percaya diri dengan jaket varsity hitamnya, meletakkan secangkir kopi di depan Jingga. Raka tidak bertanya "Apakah kamu mau kopi?"; ia langsung meletakkannya seolah ia memiliki insting yang lebih tajam daripada Biru tentang apa yang Jingga butuhkan saat kelelahan melanda.
 
 Raka membungkuk sedikit, membisikkan sesuatu tentang layout foto yang membuat Jingga tertawa kecil—suara tawa yang sudah beberapa hari ini tidak Biru dengar untuknya. Biru merasakan sebuah "gaya luar" yang mengganggu sistemnya. Fikri, sahabat sekos Biru yang paling peka, menyenggol bahu Biru dengan pelan.
 
@@ -1046,7 +1046,7 @@ Biru mencoba membuka laptopnya, namun pikirannya terus kembali pada Laras di Sur
 
 “Laporan data kemarin aku revisi sedikit di bagian statistik pedagang. Nanti kita sinkronisasi ulang agar narasinya tidak tumpang tindih,” kata Jingga dengan nada yang sangat profesional, seolah-olah mereka adalah dua orang asing yang kebetulan dipasangkan dalam satu proyek.
 
-Biru mengangguk singkat. Namun, Jingga tidak langsung pergi. Ia menarik napas panjang, menatap lurus ke mata Biru. “Mas,” katanya lagi, suaranya kini lebih rendah namun penuh penekanan, “Aku nggak mau kerja sama kamu jadi hal yang bikin aku harus terus-menerus menebak posisi aku sendiri. Aku mahasiswi Matematika, aku suka kepastian hasil. Kalau kamu masih ada di tempat lain, atau masih menunggu 'surat' lain dari seseorang yang namanya tidak bisa disebut... aku cuma minta kamu jujur. Jangan setengah hati di sini.”
+Biru mengangguk singkat. Namun, Jingga tidak langsung pergi. Ia menarik napas panjang, menatap lurus ke mata Biru. “Mas,” katanya lagi, suaranya kini lebih rendah namun penuh penekanan, “Aku nggak mau bahkan saat bahas kerjaan seperti ini jadi hal yang bikin aku harus terus-menerus menebak posisi aku sendiri. Aku mahasiswi Matematika, aku suka kepastian hasil. Kalau kamu masih ada di tempat lain, atau masih menunggu 'surat' lain dari seseorang yang namanya tidak bisa disebut itu... Aku cuma minta kamu jujur. Jangan setengah hati di sini.”
 
 Kalimat itu menghantam Biru lebih keras dari kegagalan praktikum Fisika Dasar mana pun. Ia menyadari Jingga tidak sedang marah; ia sedang mulai mundur pelan-pelan untuk melindungi dirinya sendiri dari ketidakpastian Biru.
 

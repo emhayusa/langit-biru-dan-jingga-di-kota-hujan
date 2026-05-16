@@ -712,7 +712,7 @@ Beberapa menit kemudian, Jingga berdiri. “Aku ada kelas Matematika.”
 
 Biru mengangguk. “Oke.”
 
-Jingga berjalan beberapa langkah, lalu berhenti. Ia menoleh. “Mas Biru… Kalau aku nggak ganggu kamu… aku boleh tetap dekat nggak?”
+Jingga berjalan beberapa langkah, lalu berhenti. Ia menoleh. “Mas Biru… Kalau aku nggak ganggu kamu… Aku boleh tetap dekat nggak?”
 
 Pertanyaan itu sederhana. Tapi bagi Biru, cara Jingga mengucapkannya seperti variabel baru yang tiba-tiba muncul di tengah soal yang sudah hampir selesai. Biru terdiam cukup lama. Izin ini bukan sekadar izin berteman; ini adalah keputusan sadar untuk membiarkan Jingga masuk ke dalam rumus hidupnya yang selama ini ia paksa statis untuk Laras.
 
@@ -728,29 +728,29 @@ Biru kembali duduk sendirian di kantin. Hujan masih turun di luar. Dan untuk per
 
 Malam di Bogor turun pelan, seperti seseorang yang tidak ingin mengganggu. Biru Aji Pratama duduk di kamar kontrakannya, lampu meja kuning redup menyinari meja kayu yang mulai mengelupas. Di luar, hujan turun lagi—tidak deras, tapi cukup untuk membuat dunia di balik jendela terasa seperti berada di tempat lain yang jauh.
 
-Di atas meja, ada dua hal yang belum selesai: laporan kegiatan asisten riset laboratorium, dan selembar kertas kosong yang sudah tiga kali ia mulai, lalu ia robek lagi. Biru menatap keduanya lama. Tangannya memegang pulpen. Tidak bergerak. Jemarinya yang biasa lincah mengetik pesan singkat untuk Jingga tiba-tiba menjadi kaku saat harus merangkai kata untuk Laras.
+Di atas meja, ada dua hal yang belum selesai: laporan kegiatan asisten riset laboratorium, dan selembar kertas kosong yang sudah tiga kali ia mulai tulis, lalu ia robek lagi. Biru menatap keduanya lama. Tangannya memegang pulpen. Tidak bergerak. Jemarinya yang biasa lincah mengetik pesan singkat untuk Jingga tiba-tiba menjadi kaku saat harus merangkai kata untuk Laras.
 
-Ia sedang ingin menulis sesuatu yang tidak ada di kurikulum mana pun. Bukan laporan. Bukan catatan. Bukan tugas. Tapi sesuatu yang terlalu jujur untuk diserahkan ke siapa pun. Untuk Larasati Nirmala. Nama itu muncul begitu saja, seperti kebiasaan lama yang tidak pernah benar-benar hilang. Menulis surat membutuhkan kejujuran yang utuh, sedangkan Biru merasa dirinya tidak lagi utuh karena sebagian pikirannya sudah "terinfeksi" oleh ritme hidup baru bersama Jingga di Bogor.
+Ia sedang ingin menulis sesuatu yang tidak ada di kurikulum mana pun. Bukan laporan. Bukan catatan. Bukan tugas. Tapi sesuatu yang terlalu jujur untuk dibagikan kepada siapa pun. Hanya teruntuk Larasati Nirmala. Nama itu muncul begitu saja, seperti kebiasaan lama yang tidak pernah benar-benar hilang. Menulis surat membutuhkan kejujuran yang utuh, sedangkan Biru merasa dirinya tidak lagi utuh karena sebagian pikirannya sudah "terinfeksi" oleh ritme hidup baru bersama Jingga di Bogor.
 
 Ia mulai menulis. “Laras…”. Berhenti. Pulpen diangkat. Ditaruh lagi. Ia menghela napas. Lalu mencoba lagi. “Aku tidak tahu kenapa sampai sekarang aku masih…”. Berhenti. Kertas itu diremas pelan. Lalu dirapikan lagi, seolah ia bisa memperbaiki niat yang sudah terlanjur retak. Biru menatap kertas kosong itu dan menyadari ia tidak bisa lagi menggunakan "asumsi" atau "pendekatan" khas fisika untuk menutupi perasaannya. Ia mulai takut bahwa diamnya kepada Laras bukan lagi soal menjaga perasaan, melainkan bentuk pengkhianatan yang pengecut.
 
-Biru bersandar ke kursi, menatap langit-langit. Dan seperti kebiasaan yang tidak sopan, masa lalu datang tanpa mengetuk. Perpustakaan SMA Semarang. Hujan di luar kaca jendela. Laras duduk tenang dengan buku sastra di tangannya. Biru berdiri di depan rak, terlalu lama memilih buku yang sebenarnya sudah jelas ia inginkan sejak awal. Lalu suara itu datang tanpa menoleh. “Kalau kamu terus ragu, buku itu keburu dipinjam orang lain.”. Biru tersentak. “Eh—iya.”. Laras akhirnya menatapnya sekilas. Ada senyum kecil yang tidak berlebihan. “Kamu itu bukan lambat,” katanya pelan. “Kamu cuma terlalu banyak mikir..”.
+Biru bersandar ke kursi, menatap langit-langit. Dan seperti kebiasaan yang tidak sopan, masa lalu datang tanpa mengetuk. Ia kembali mengingat kejadian di perpustakaan SMA Semarang. Hujan di luar kaca jendela. Laras duduk tenang dengan buku sastra di tangannya. Biru berdiri di depan rak, terlalu lama memilih buku yang sebenarnya sudah jelas ia inginkan sejak awal. Lalu suara itu datang tanpa menoleh. “Kalau kamu terus ragu, buku itu keburu dipinjam orang lain.”. Biru tersentak. “Eh—iya.”. Laras akhirnya menatapnya sekilas. Ada senyum kecil yang tidak berlebihan. “Kamu itu bukan lambat,” katanya pelan. “Kamu cuma terlalu banyak mikir..”.
 
 Kenangan itu berhenti di situ, seperti halaman yang sengaja tidak dilanjutkan. Biru tersenyum kecil di kamar itu—sendiri. Tapi senyum itu tidak bertahan lama karena ia sadar Laras bukan lagi bagian dari hari-harinya; Laras adalah bagian dari cara ia takut mengambil keputusan.
 
-Ponselnya bergetar tajam di atas meja kayu. Getaran itu terasa seperti interupsi kasar terhadap masa lalu yang sedang ia coba susun kembali. Ada rasa bersalah yang menyesak saat ia menyadari bahwa secara tidak sadar, ia jauh lebih antusias menunggu getaran ponsel itu daripada menyelesaikan surat untuk Laras. Pesan masuk dari Jingga: “Mas Biru, besok ada presentasi rubrik koran kampus. jangan lupa ya.”.
+Ponselnya bergetar tajam di atas meja kayu. Getaran itu terasa seperti interupsi kasar terhadap masa lalu yang sedang ia coba susun kembali. Ada rasa bersalah yang menyesak saat ia menyadari bahwa secara tidak sadar, ia jauh lebih antusias menunggu getaran ponsel itu daripada menyelesaikan surat untuk Laras. Pesan masuk dari Jingga: “Mas Biru, besok ada presentasi rubrik koran kampus. Jangan lupa ya!.”.
 
-Biru menatap layar cukup lama. Koran kampus. Organisasi itu adalah tempat di mana ia awalnya hanya datang karena ingin mencoba sesuatu di luar angka dan rumus fisika yang terlalu sering membuatnya diam di kepala sendiri. Dan di sana Jingga selalu terlihat seperti orang yang sudah lebih dulu memahami ritme dunia itu. Biru mengetik singkat: “Iya.”. Lalu mengirimnya tanpa tambahan penjelasan.
+Biru menatap layar cukup lama. Koran kampus. Organisasi itu adalah tempat di mana ia awalnya hanya datang karena ingin mencoba sesuatu di luar angka dan rumus fisika yang terlalu sering membuatnya diam di kepala sendiri. Dan di sana Jingga juga ternyata sudah terlebih dahulu ikut bergabung, ia selalu terlihat seperti orang yang sudah lebih dulu tahu bagaimana memahami ritme dunia. Biru mengetik singkat: “Iya.”. Lalu mengirimnya tanpa tambahan penjelasan.
 
-Ia meletakkan ponsel kembali di meja dan menatap kertas kosong itu lagi. Kali ini bukan Laras yang muncul lebih dulu, tapi Jingga—perempuan yang ia temui di bawah pohon kapas IPB Baranangsiang di hari hujan yang tidak ia rencanakan untuk diingat. Perempuan yang selalu hadir di masa kini. Pertanyaan Jingga kembali terngiang: “Kalau aku nggak ganggu kamu… aku boleh tetap dekat nggak?”.
+Ia meletakkan ponsel kembali di meja dan menatap kertas kosong itu lagi. Kali ini bukan Laras yang muncul lebih dulu, tapi Jingga—perempuan yang ia temui di bawah pohon kapas IPB Baranangsiang di hari hujan yang tidak ia rencanakan untuk diingat. Perempuan yang selalu hadir di masa kini. Pertanyaan Jingga kembali terngiang: “Kalau aku nggak ganggu kamu… Aku boleh tetap dekat nggak?”.
 
 Biru menutup mata sebentar. Tangannya kembali memegang pulpen dan menulis nama itu tanpa ragu: “Jingga…”. Tinta hitamnya sedikit melebar di atas kata itu, membentuk titik diam yang kaku—seperti _system error_ dalam hatinya yang tidak bisa diperbaiki hanya dengan menghapus draft. Ia berhenti bukan karena tidak ingin melanjutkan, tapi karena terlalu takut kalau ia melanjutkannya.
 
 Pulpen itu diletakkan. Kertas draf untuk Laras itu ia lipat perlahan, namun tidak jadi ia masukkan ke dalam amplop. Ia menyadari bahwa ia sedang tersesat di dalam dirinya sendiri dan tidak tahu siapa dirinya yang sekarang harus ia ceritakan kepada Laras. Ia sedang kehilangan arah pulangnya sendiri.
 
-Hujan di luar mulai mereda, menyisakan bunyi air di atap seng. Biru berdiri dan berjalan ke jendela melihat lampu jalan memantul di aspal yang basah. Bogor terlihat tenang seolah tidak tahu ada orang yang sedang berantakan di dalam kamar kecilnya. Biru berbisik pelan, “Mengapa segala hal terasa begitu nyata dan tulus... justru di saat aku sama sekali belum siap?”.
+Hujan di luar mulai mereda, menyisakan bunyi air di atap seng. Biru berdiri dan berjalan ke jendela melihat lampu jalan memantul di aspal yang basah. Bogor terlihat tenang seolah tidak tahu ada orang yang sedang berantakan di dalam kamar kecilnya. Biru berbisik pelan, “Mengapa segala hal terasa begitu nyata dan tulus... Justru di saat aku sama sekali belum siap?”.
 
-Malam itu ia tidak sedang memilih antara masa lalu dan masa depan; ia sedang mulai kehilangan kendali atas keduanya. Sementara Jingga, pelan-pelan, berdiri terlalu dekat dengan sesuatu yang belum pernah ia berani sebut sebagai harapan
+Malam itu ia tidak sedang memilih antara masa lalu dan masa depan; ia sedang mulai kehilangan kendali atas keduanya. Sementara Jingga, pelan-pelan, berdiri terlalu dekat dengan sesuatu yang belum pernah ia berani sebut sebagai harapan.
 
 #
 

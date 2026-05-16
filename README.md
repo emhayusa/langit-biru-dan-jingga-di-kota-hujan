@@ -138,7 +138,7 @@ Perempuan itu bernama Jingga Maharani.
 
 Bertahun-tahun setelah hujan sore itu, Biru baru mengerti: hidup sering mempertemukan manusia pada waktu yang tidak pernah benar-benar tepat. Kadang ketika seseorang masih sibuk menjaga kenangan lama, atau ketika hati belum selesai menunggu.
 
-Dan dari semua perjalanan panjang yang akan datang—tentang surat-surat lama yang tidak pernah sampai, wartel pukul sepuluh malam, hingga pesantren tua di Demak—Biru Aji Pratama akhirnya belajar: bahwa cinta bukan sekadar tentang siapa yang lebih dulu hadir. Melainkan siapa yang tetap berjalan di samping kita, hingga perjalanan itu akhirnya terasa seperti rumah.
+Dan dari semua perjalanan panjang yang akan datang—tentang surat-surat lama yang tidak pernah sampai, wartel pukul sepuluh malam, hingga pesantren tua di pesisir Jawa Tengah—Biru Aji Pratama akhirnya belajar: bahwa cinta bukan sekadar tentang siapa yang lebih dulu hadir. Melainkan siapa yang tetap berjalan di samping kita, hingga perjalanan itu akhirnya terasa seperti rumah.
 
 #
 
@@ -572,7 +572,7 @@ Jingga menghela napas kecil. “Mas Biru itu keras kepala, tapi satu tingkatan v
 
 Akhirnya Biru mengikuti Jingga masuk. Di dalam mushola, suasana terasa lebih hangat. Sajadah hijau tua terbentang rapi. Beberapa mahasiswa masih duduk berdzikir pelan sebelum pulang. Biru memilih duduk di sisi ruangan laki-laki, agak ke pojok.
 
-Biru menatap sajadah hijau di depannya. Dalam Fisika, hijau hanyalah spektrum cahaya dengan panjang gelombang tertentu. Namun di sini, warna itu adalah sebuah konstanta—satu-satunya hal yang tidak berubah sejak ia masih santri di Demak hingga ia menjadi mahasiswa di Bogor. Di tempat ini, ia tidak perlu menghitung "gaya gesek" atau "resultan gaya" untuk merasa seimbang. Tidak ada variabel yang harus ia kontrol. Cukup dengan duduk diam, dan beban dunianya seolah terdistribusi merata ke lantai mushola yang dingin. Di sini, ia belajar tentang penyerahan diri—sebuah konsep yang merupakan antitesis dari sifat kontrolnya dalam dunia Fisika.
+Biru menatap sajadah hijau di depannya. Dalam Fisika, hijau hanyalah spektrum cahaya dengan panjang gelombang tertentu. Namun di sini, warna itu adalah sebuah konstanta—satu-satunya hal yang tidak berubah sejak ia masih santri di pesisir Jawa Tengah hingga ia menjadi mahasiswa di Bogor. Di tempat ini, ia tidak perlu menghitung "gaya gesek" atau "resultan gaya" untuk merasa seimbang. Tidak ada variabel yang harus ia kontrol. Cukup dengan duduk diam, dan beban dunianya seolah terdistribusi merata ke lantai mushola yang dingin. Di sini, ia belajar tentang penyerahan diri—sebuah konsep yang merupakan antitesis dari sifat kontrolnya dalam dunia Fisika.
 
 Sementara Jingga duduk di sisi perempuan, tidak terlalu dekat dengannya. Ada jarak yang cukup jelas di antara mereka—bukan hanya jarak fisik, tetapi juga kebiasaan yang tanpa sadar dijaga Biru sejak lama.
 
@@ -606,7 +606,7 @@ Biru terdiam sebentar. Bukan karena tidak tahu jawaban, tetapi karena tidak meny
 
 Suasana kembali hening, namun kali ini bukan hening yang kosong. Jingga menghela nafas pelan. “Mas kadang ngomongnya kayak orang tua ya.”
 
-Biru tersenyum kecil. “Iya… saya dulu pernah lama pesantren di Demak.”
+Biru tersenyum kecil. “Iya… saya dulu pernah lama pesantren di pesisir Jawa Tengah.”
 
 “Serius?”
 
@@ -1952,7 +1952,7 @@ Kini, ketika Laras menyebut nama "Biru," Jingga langsung tahu siapa yang dimaksu
 
 Saat jam makan siang tiba, mereka memutuskan untuk makan bersama di sebuah warung kecil dekat kantor. Jingga, yang rasa ingin tahunya masih membuncah, tiba-tiba bertanya, “Dia waktu kecil memang tinggal di pesantren terus?”
 
-Laras menggeleng pelan sambil menata sendoknya. “Nggak terus-terusan. Tapi setelah lulus SMP, dia memang sempat lama di Demak. Ibunya ingin dia punya fondasi yang kuat.”
+Laras menggeleng pelan sambil menata sendoknya. “Nggak terus-terusan. Tapi setelah lulus SD, dia memang sempat lama di Demak. Ibunya ingin dia punya fondasi yang kuat.”
 
 Jingga mendengarkan dengan serius, ia teringat bagaimana Biru seringkali bersikap sangat formal dan menjaga jarak, sebuah pola yang kini mulai terlihat akarnya. Laras melanjutkan dengan suara yang lebih lembut, “Dia dulu pernah bilang... di pesantren itu dia belajar kalau laki-laki nggak boleh terlalu banyak mengeluh. Diajarkan untuk menjadi kuat dengan cara menyimpan rasa sakitnya sendiri.”
 
@@ -2170,9 +2170,9 @@ Awalnya Biru ingin menolak. Terlihat jelas dari caranya menghindari tatapan mere
 
 Dan entah kenapa, kalimat sederhana itu—permintaan yang tulus tanpa paksaan—membuat Biru tidak jadi mencari alasan. Ia hanya mengangguk pelan, menyerah pada takdir yang membawanya kembali ke titik nol.
 
-Perjalanan menuju Demak ditempuh dengan mobil sewaan kecil. Sepanjang jalan, hamparan sawah hijau kekuningan dan langit Jawa yang luas menemani mereka. Laras duduk di depan bersama sopir, memberikan ruang bagi Biru dan Jingga di baris belakang. Laras sengaja memilih posisi itu; ia ingin memberikan kesempatan bagi "masa kini" Biru untuk melihat fondasi "masa lalu"-nya.
+Perjalanan menuju Demak ditempuh dengan mobil sewaan kecil yang disetir sendiri oleh Biru. Sepanjang pagi, simfoni aliran sungai yang berkilau di antara permadani sawah yang mulai terbangun dan luasnya langit Jawa nan jernih setia menemani mereka. Laras dengan sengaja memilih duduk di baris belakang, memberikan ruang bagi Jingga untuk duduk di depan menemani Biru. Laras sengaja memilih posisi itu; ia ingin memberikan kesempatan bagi "masa kini" Biru untuk melihat fondasi "masa lalu"-nya secara langsung dari garis depan perjalanan mereka.
 
-Di kursi belakang, awalnya mereka banyak diam. Jingga menatap keluar jendela, memerhatikan papan jalan yang mulai menunjukkan arah ke makam-makam wali. Sampai akhirnya ia bertanya dengan suara rendah, “Kamu dulu bahagia nggak di sana, Ru?”
+Di kursi depan, awalnya mereka banyak diam. Jingga menatap keluar jendela, memerhatikan riak air sungai dan papan jalan yang mulai menunjukkan arah ke makam-makam wali, sementara Laras tersenyum tipis menyaksikan momen itu dari pantulan kaca spion tengah. Sampai akhirnya Jingga memalingkan wajah ke arah Biru dan bertanya dengan suara rendah, “Kamu dulu bahagia nggak di sana, Ru?”
 
 Biru menatap jalan cukup lama sebelum menjawab. Ia tidak lagi menggunakan kata-kata bersayap. “Aku dulu lebih sibuk belajar menjadi kuat,” jawabnya jujur.
 

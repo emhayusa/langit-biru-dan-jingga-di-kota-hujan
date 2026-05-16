@@ -508,21 +508,21 @@ Pagi di Bogor tidak pernah benar-benar kering. Biru Aji Pratama berjalan pelan m
 
 Sejak berangkat tadi, pikirannya tertahan pada satu hal kecil yang baru saja diberikan pemilik kos: sebuah amplop coklat tipis tanpa nama pengirim. Di bagian depannya hanya tertulis rapi: “Untuk Biru — Bogor”.
 
-Biru duduk di bangku taman kampus. Suara mahasiswa yang lalu-lalang, deru angkot di kejauhan, dan angin lembab khas Bogor seolah menjauh sesaat ketika ia membuka amplop itu perlahan. Di dalamnya ada satu lembar surat dan sehelai daun kering yang diselipkan rapi. Tulisan itu dari Larasati Nirmala. Laras bukan orang yang tidak tahu zaman. Ia punya telepon genggam. Ia bisa saja mengirim pesan, seperti orang lain. Tapi Laras selalu percaya satu hal sederhana: tidak semua hal pantas dikirim lewat layar.
+Biru duduk di bangku taman kampus. Suara mahasiswa yang lalu-lalang, deru angkot di kejauhan, dan angin lembab khas Bogor seolah menjauh sesaat ketika ia membuka amplop itu perlahan. Di dalamnya ada satu lembar surat dan sehelai daun kering yang diselipkan rapi. Tulisan itu dari Larasati Nirmala. Laras bukan orang yang tidak tahu zaman. Ia punya telepon genggam. Ia bisa saja mengirim pesan, seperti orang lain. Tapi Laras selalu percaya satu hal sederhana: tidak semua hal bisa diungkapkan lewat pesan singkat di layar.
 
-Tulisan tangan Laras yang rapi itu seolah menarik Biru kembali ke koordinat yang seharusnya sudah ia tinggalkan. Ia menyentuh sehelai daun kering yang jatuh dari amplop. Baginya, Laras adalah variabel konstan yang menjaga seluruh rumusnya tetap masuk akal. Namun, surat ini terasa seperti peringatan: bahwa semakin ia belajar untuk menetap di Bogor, semakin ia kehilangan identitasnya sebagai orang yang akan "pulang".
+Tulisan tangan Laras yang rapi itu seolah menarik Biru kembali ke koordinat yang seharusnya sudah mulai ia tinggalkan. Ia menyentuh sehelai daun kering yang jatuh dari amplop. Baginya, Laras adalah variabel konstan yang menjaga seluruh rumusnya tetap masuk akal. Namun, surat ini terasa seperti peringatan: bahwa semakin ia belajar untuk menetap di Bogor, semakin ia kehilangan identitasnya sebagai orang yang akan "pulang".
 
 Biru memutar-mutar daun kering itu di antara jempol dan telunjuknya. Dalam Fisika, ia tahu setiap benda memiliki ambang batas elastisitas—titik di mana sebuah materi tidak bisa lagi kembali ke bentuk semula jika ditekan terlalu kuat. Baginya, kenangan ini seperti daun kering itu; jika ia memaksakan realita barunya di Bogor untuk menekan masa lalunya terlalu keras, kenangan tentang Laras akan hancur menjadi serpihan yang tidak bisa disatukan lagi. Ketakutan itu membuatnya ragu untuk melangkah maju.
 
-“Ru, aku nggak tahu kamu di Bogor lagi sibuk apa. Tapi di Solo hujan juga sering turun akhir-akhir ini. Kata orang kos, kalau hujan terus itu tanda orang yang jauh sedang banyak mikir. Aku nggak tahu itu benar atau nggak. Tapi akhir-akhir ini aku jadi sering mikirin kamu.”
+“Ru, aku nggak tahu kamu di Bogor lagi sibuk apa. Tapi di Solo hujan juga sering turun akhir-akhir ini. Kata teman kos, kalau hujan terus itu bisa jadi pertanda orang yang jauh sedang banyak pikiran. Aku nggak tahu itu benar atau nggak. Tapi akhir-akhir ini aku jadi sering mikirin kamu.”
 
 Biru berhenti membaca. Matanya menatap jauh ke arah pepohonan kampus yang bergoyang pelan diterpa angin. Lalu ia melanjutkan.
 
-“Aku ingat kamu waktu SMA. Yang kalau gugup selalu pura-pura serius baca buku fisika. Sekarang kamu pasti sudah lebih dewasa. Tapi aku nggak yakin kamu akan berhasil mengelabui perasaan kamu.”
+“Aku ingat kamu waktu SMA. Yang kalau gugup selalu pura-pura serius baca buku Fisika. Sekarang kamu pasti sudah lebih dewasa. Tapi aku masih nggak yakin kalau kamu sudah berhasil belajar mengungkapkan perasaan yang ada dalam hati kamu.”
 
 Tanpa sadar, Biru tersenyum kecil. Di bagian bawah surat, tulisan Laras berubah lebih kecil dan lebih rapat—seolah bagian itu ditulis paling lama, di waktu yang berbeda dari bagian sebelumnya.
 
-“Kalau suatu hari kamu ketemu seseorang di Bogor, jangan lupa ya tetap jadi kamu yang dulu. Jangan sampai kota baru membuatmu lupa caramu untuk pulang.”
+“Kalau suatu hari kamu bertemu dengan seseorang di Bogor, jangan lupa ya tetap jadi kamu yang dulu. Jangan sampai kota baru malah membuatmu lupa bagaimana cara untuk kembali pulang.”
 
 Biru menutup surat itu perlahan. Daun kering di dalam amplop jatuh ke pangkuannya. Rapuh, tetapi masih utuh bentuknya. Angin Bogor berhembus pelan. Dan tiba-tiba ingatannya mundur jauh ke tahun 2002 di perpustakaan SMA Semarang. Laras pernah berkata pelan padanya, “Kamu kalau mikir lama banget, bukunya keburu diambil orang lain.” Kalimat yang dulu terdengar seperti candaan, kini terasa seperti peringatan yang jauh lebih dalam.
 
@@ -530,23 +530,23 @@ Sore harinya, gerimis kecil membasahi halte dekat fakultas ketika Jingga Maharan
 
 “Mas Biru\!” Biru menoleh. Jingga melambai sambil mendekat. “Tadi aku kirim SMS, dibalas nggak?”
 
-Biru menggeleng kecil. “Belum sempat.”
+Biru menggeleng kecil. “Maaf, belum sempat.”
 
 “Alasan..”
 
-Biru hanya tersenyum samar. Ia merasakan ponsel di saku celananya bergetar sebentar—sebuah ritme yang menuntut balasan cepat. Sangat kontras dengan amplop di tangannya yang terasa berat, sesuatu yang harus disimpan dan dijaga. Surat Laras adalah beban manis dari masa lalu, sedangkan pesan Jingga adalah ritme hidup yang sedang ia jalani sekarang.
+Biru hanya tersenyum samar. Ia tadi merasakan ponsel di saku celananya bergetar sebentar—sebuah ritme yang menuntut balasan cepat. Sangat kontras dengan amplop di tangannya yang terasa berat, sesuatu yang harus disimpan dan dijaga. Surat Laras adalah beban manis dari masa lalu, sedangkan pesan Jingga adalah ritme hidup yang sedang ia jalani sekarang.
 
-Jingga duduk di sampingnya tanpa canggung. Lalu mata Jingga menangkap amplop coklat di tangan Biru. “Dari siapa itu?”
+Jingga duduk di sampingnya tanpa canggung. Lalu mata Jingga menangkap amplop coklat di tangan Biru. “Dari siapa itu Mas?”
 
 Biru sedikit terkejut. Ia refleks menggenggam amplop itu lebih erat, sebuah gerakan protektif yang tidak luput dari pandangan Jingga. Jingga tidak bertanya lagi, tapi ia menatap Biru dengan tatapan yang berbeda—ia sedang membaca bahasa tubuh Biru yang tiba-tiba membangun tembok pemisah.
 
 Jingga lalu berdiri perlahan. “Mas… kamu kayaknya punya dunia sendiri ya, selain di Bogor. Aku nggak tahu isinya apa… tapi rasanya aku cuma..”
 
-Jingga tersenyum kecil, tetapi tidak secerah biasanya. Ada nada hati-hati yang menyakitkan. “Jangan bikin aku cuma seperti orang yang sekedar numpang lewat aja dong.”
+Jingga tidak jadi melanjutkan, lalu tersenyum kecil, tetapi tidak secerah biasanya. Ada nada hati-hati yang menyakitkan. “Jangan bikin aku cuma seperti orang yang sekedar numpang lewat aja dong.”
 
 Biru tertegun. Ia ingin membantah, tapi lidahnya kelu. Ia sadar bahwa selama ini ia membiarkan Jingga berada di bawah payungnya, tapi tidak pernah benar-benar mengizinkannya masuk ke dalam dunianya. Kalimat Jingga adalah tamparan logis yang tidak bisa ia jawab dengan rumus apa pun. Di mata Jingga, Biru melihat sebuah permohonan untuk dianggap "nyata", bukan sekadar pengalihan dari masa lalu.
 
-Malamnya, di kamar kos yang sempit, Biru duduk bersandar di lantai. Surat Laras terletak di satu sisi, ponselnya di sisi lain. Biru membuka buku agenda kecilnya dan menulis: “Ternyata hujan di Bogor tidak hanya membasahi jalan, tapi juga mengajariku cara memandang orang.”
+Malamnya, di kamar kos yang sempit, Biru duduk bersandar di lantai. Surat Laras terletak di satu sisi, ponselnya di sisi lain. Biru membuka buku agenda kecilnya dan menulis: “Ternyata hujan di Bogor tidak hanya membasahi jalan, tapi juga mengajariku bagaimana cara memandang orang.”
 
 Biru menatap tinta di agendanya yang perlahan mengering. Ada rasa bersalah yang menyesak; ia merasa mengkhianati Laras setiap kali ia memberikan senyum pada Jingga, namun ia juga merasa mengkhianati kejujuran Jingga setiap kali ia menyembunyikan surat Laras dalam kegelapan kamarnya. Ia berada di persimpangan yang berbahaya. Jarak yang paling sulit dijembatani bukanlah Bogor-Solo, melainkan jarak antara siapa dirinya di hadapan Laras dan siapa ia saat bersama Jingga. Hidupnya tidak lagi sesederhana tentang pulang atau pergi.
 

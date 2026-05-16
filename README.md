@@ -802,51 +802,51 @@ Jingga merasa ia bukan "jalan pulang" Biru. Ia hanyalah halte sementara bagi ses
 
 # **12 — Bubur Ayam Kabita depan Gerbang Kampus**
 
-Pagi di sekitar gerbang kampus IPB Baranangsiang selalu punya ritme yang sama, tapi tidak pernah terasa benar-benar identik. Ada yang bergegas dengan tas setengah terbuka, ada yang masih setengah sadar sambil menggenggam kopi saset, dan ada juga yang seperti tidak sedang berjalan ke kelas—melainkan sedang diseret oleh waktu. Di antara semua itu, Warung Bubur Ayam Kabita berdiri seperti titik diam di tengah arus. Uap panasnya naik perlahan dari mangkuk-mangkuk yang berjejer. Sendok beradu pelan dengan mangkuk plastik. Dan suara khas itu—suara pagi yang tidak pernah ditulis di buku kuliah mana pun—selalu jadi penanda bahwa hari sudah benar-benar dimulai.
+Pagi di sekitar gerbang kampus IPB Baranangsiang selalu punya ritme yang sama, tapi tidak pernah terasa benar-benar identik. Ada yang bergegas dengan tas setengah terbuka, ada yang masih setengah sadar sambil menggenggam kopi saset, dan ada juga yang seperti tidak sedang berjalan ke kelas—melainkan sedang diseret oleh waktu. Di antara semua itu, Warung Bubur Ayam Kabita berdiri seperti titik diam di tengah arus. Uap panasnya naik perlahan dari mangkuk-mangkuk yang berjejer. Sendok beradu pelan dengan mangkuk keramik khas ber motif ayam jago . Dan suara khas itu—suara pagi yang tidak pernah ditulis di buku kuliah mana pun—selalu jadi penanda bahwa hari sudah benar-benar dimulai.
 
 Biru Aji Pratama sudah duduk di sana lebih dulu. Seperti biasa. Ia tidak datang tepat pagi sekali, tapi juga tidak pernah terlambat. Seolah-olah ia punya kesepakatan diam-diam dengan waktu: cukup hadir sebelum semua orang terlalu sibuk menjadi orang lain. Di depannya, satu mangkuk bubur ayam masih utuh. Putih, hangat, dan rapi—belum tersentuh kecap, belum diacak oleh sendok.
 
 “Kamu masih aja ya,” suara itu datang dari sebelahnya. Biru tidak menoleh langsung. Ia sudah tahu siapa pemilik suara itu: Jingga Maharani. Mahasiswi yang selalu datang seperti warna yang tidak bisa diabaikan—tidak terlalu keras, tapi juga tidak pernah bisa dianggap latar belakang. Ia duduk tanpa menunggu dipersilakan, menaruh tasnya di samping kursi, lalu langsung menatap mangkuk Bubur Biru.
 
-“Belum diaduk,” kata Jingga lagi, kali ini lebih pelan. Biru akhirnya menoleh. “Emang kenapa?” Jingga menghela napas kecil, seperti orang yang sudah berkali-kali menghadapi kasus yang sama tapi tetap gagal menerima hasilnya. “Bubur itu… harus diaduk.” Biru menggeser sendoknya sedikit, tapi belum juga menyentuh isi mangkuk. “Bubur itu sudah benar dari sananya.”
+“Belum diaduk,” kata Jingga lagi, kali ini lebih pelan. Biru akhirnya menoleh. “Emang kenapa harus diaduk?” Jingga menghela napas kecil, seperti orang yang sudah berkali-kali menghadapi kasus yang sama tapi tetap gagal menerima hasilnya. “Bubur itu… harus diaduk.” Biru menggeser sendoknya sedikit, tapi belum juga menyentuh isi mangkuk. “Bubur itu sudah benar dari sananya.”
 
 Jingga menyipit. “Itu kalimat orang yang takut perubahan.”
 
-“Bukan takut. Konsisten.”
+“Bukan takut tapi konsisten..”
 
 “Namanya juga denial.”
 
-Biru hampir tersenyum, tapi ditahannya. “Kalau diaduk, tekstur nya rusak.”
+Biru hampir tersenyum, tapi ditahannya. “Kalau diaduk, tekstur rasanya akan rusak.”
 
-“Kalau nggak diaduk, rasanya nggak nyatu.”
+“Kalau nggak diaduk, rasanya nggak akan nyatu.”
 
-Senyap kecil jatuh di antara mereka. Tapi itu bukan senyap yang canggung. Lebih seperti jeda yang sudah terlalu sering terjadi, sampai keduanya hafal kapan harus berhenti dan kapan harus lanjut. Jingga akhirnya mengambil sendok dari tangannya sendiri, lalu menunjuk mangkuk Biru seperti seorang dosen yang sudah lelah dengan mahasiswa keras kepala. “Sekali ini aja.” Biru mengangkat alis. “Ancaman?” “Eksperimen.”
+Senyap kecil jatuh di antara mereka. Tapi itu bukan senyap yang canggung. Lebih seperti jeda yang sudah terlalu sering terjadi, sampai keduanya hafal kapan harus berhenti dan kapan harus lanjut. Jingga akhirnya mengambil sendok dari tangannya sendiri, lalu menunjuk mangkuk Biru seperti seorang dosen yang sudah lelah dengan mahasiswa keras kepala. “Sekali ini aja.” Biru mengangkat alis. “Ancaman?” “Bukan, anggap aja sebuah eksperimen..”
 
-Biru menatapnya beberapa detik. Lalu, perlahan, ia mendorong mangkuknya sedikit ke depan. “Kalau gagal, tanggung jawab lho.” Jingga tersenyum kecil. “Deal.” Sendok pertama masuk. Pelan. Lalu bubur itu mulai berubah. Putihnya tidak lagi polos, kuning telur pecah menyebar, kecap yang ditambahkan Jingga membuat semuanya jadi satu warna yang lebih gelap, lebih dalam, lebih… tidak terpisah.
+Biru menatapnya beberapa detik. Lalu, perlahan, ia mendorong mangkuknya sedikit ke depan. “Kalau gagal, tanggung jawab lho.” Jingga tersenyum kecil. “Deal.” Sendok pertama masuk. Pelan. Lalu bubur itu mulai berubah setelah diaduk. Putihnya tidak lagi polos, bumbu kuning menyatu dengan kerupuk, sayur dan suwiran ayam. Kecap yang ditambahkan Jingga membuat semuanya jadi satu warna yang lebih gelap, lebih dalam, lebih menyatu… tidak terpisahkan.
 
 Biru memperhatikan tanpa bicara. Jingga mengaduk sekali lagi, lalu menyerahkan sendok itu kembali. “Coba.” Biru menerima sendok itu. Tapi sebelum makan, ia berhenti sebentar. “Rasanya beda,” katanya. “Lebih enak?” Biru tidak langsung menjawab. Ia mencicipi. Ada sesuatu yang awalnya tidak ia akui—bahwa rasa itu memang lebih menyatu. Lebih hangat. Lebih… jujur. Tapi ia tidak mau kalah cepat. “Masih bisa ditoleransi.”
 
-Jingga tertawa kecil. “Itu versi kamu bilang enak.” Biru menatapnya. “Kamu terlalu percaya diri.” “Dan kamu terlalu pelit sama perubahan.” Ada jeda lagi. Tapi kali ini, Jingga tidak langsung berdiri atau mengalihkan topik. Ia hanya duduk, memainkan sendoknya sendiri, lalu berkata pelan, seolah tidak terlalu penting: “Besok aku duduk lagi di sini ya.”
+Jingga tertawa kecil. “Itu versi kamu klo mau bilang enak.” Biru menatapnya. “Kamu terlalu percaya diri.” “Dan kamu terlalu pelit sama perubahan.” Ada jeda lagi. Tapi kali ini, Jingga tidak langsung berdiri atau mengalihkan topik. Ia hanya duduk, memainkan sendoknya sendiri, lalu berkata pelan, seolah tidak terlalu penting: “Besok aku duduk lagi di sini ya.”
 
-Kalimat itu sederhana. Tapi Biru menangkap sesuatu di dalamnya—sesuatu yang tidak ada hubungannya dengan bubur. Ia tidak langsung menjawab. Hanya mengangguk kecil. “Jangan telat,” katanya akhirnya. Jingga tersenyum, kali ini lebih lama sedikit dari biasanya. “Kalau aku telat, bubur kamu keburu diaduk orang lain.” Biru mendengus pelan. “Nggak ada yang berani.” “Tahu dari mana?”
+Kalimat itu sederhana. Tapi Biru menangkap sesuatu di dalamnya—sesuatu yang tidak ada hubungannya dengan bubur. Ia tidak langsung menjawab. Hanya mengangguk kecil. “Jangan telat tapi..” katanya. Jingga tersenyum, kali ini lebih lama sedikit dari biasanya. “Kalau aku telat, bubur kamu keburu diaduk orang lain.” Biru mendengus pelan. “Nggak ada yang berani.” “Tahu dari mana?”
 
-Biru menatap mangkuknya. Bubur yang tadi masih terpisah kini sudah menyatu sepenuhnya. “Karena ini sudah diaduk duluan sama orang yang tepat.”
+Biru menatap mangkuknya. Bubur yang tadi masih terpisah kini sudah menyatu sepenuhnya. “Karena ini sudah diaduk duluan sama orang yang tepat..”
 
-Jingga tidak menjawab langsung. Tapi sendoknya berhenti di udara sepersekian detik lebih lama dari seharusnya. Ia baru saja akan membalas dengan godaan lain, ketika sebuah suara bariton yang penuh percaya diri memecah hening di antara mereka. "Jingga\! Tahu saja tempat sarapan yang enak."
+Jingga tidak menjawab langsung. Tapi sendoknya berhenti di udara sepersekian detik lebih lama dari seharusnya. Ia baru saja akan membalas dengan godaan lain, ketika sebuah suara bariton yang penuh percaya diri memecah hening di antara mereka. "Jingga\! Tahu saja nyari tempat sarapan yang enak."
 
 Seorang pria dengan jaket varsity hitam dan kamera SLR yang menggantung di lehernya mendekat. Raka. Ia tidak menunggu diundang untuk berdiri di dekat meja mereka. Ia menumpukan satu tangannya di sandaran kursi Jingga, sebuah gerakan yang terlalu akrab bagi mata Biru.
 
 "Oh, Kak Raka," Jingga menoleh, sedikit terkejut namun langsung tersenyum. "Baru mau ke ruang redaksi?" "Iya, tapi lihat kamu di sini, jadi mampir sebentar," Raka melirik ke arah Biru, matanya menilai dengan cepat tapi tetap sopan. "Ini Biru, kan? Yang anak Fisika itu? Foto-foto praktikummu yang kemarin bagus, meski sudut pandangnya terlalu... kaku."
 
-Biru hanya mengangguk kecil, tangannya kembali menggenggam sendok dengan erat. Ia merasakan ada variabel baru yang masuk ke dalam ruangannya, dan variabel ini memiliki energi kinetik yang terlalu besar. Raka tidak berhenti di situ. Ia melihat Jingga yang sedikit mengelap keringat di dahi karena sambal bubur yang pedas. Tanpa bertanya, Raka merogoh saku jaketnya, mengeluarkan sebotol teh dingin yang masih berembun, dan meletakkannya tepat di samping tangan Jingga.
+Biru hanya mengangguk kecil, tangannya kembali menggenggam sendok dengan erat. Ia merasakan ada variabel baru yang masuk ke dalam ruangannya, dan variabel ini memiliki energi kinetik yang terlalu besar. Raka tidak berhenti di situ. Ia melihat Jingga yang sedikit mengelap keringat di dahi karena sambal bubur yang pedas. Tanpa bertanya, Raka bergerak mengambilkan teh tawar, dan meletakkannya tepat di samping tangan Jingga.
 
 "Minum ini. Jangan dibiasakan makan pedas pagi-pagi tanpa persiapan," kata Raka dengan nada perintah yang protektif. Jingga tertawa kecil, "Makasih, Kak. Kebetulan banget."
 
-Biru menatap botol teh itu. Ia baru saja hendak berdiri untuk mengambilkan air mineral untuk Jingga, tapi ia kalah cepat. Selisih beberapa detik saja, namun rasanya seperti kalah dalam sebuah perlombaan panjang. Di matanya, bubur yang tadi terasa "menyatu" kini mendadak kehilangan rasanya.
+Biru menatap gelas teh itu. Ia baru saja hendak berdiri untuk mengambilkan air mineral untuk Jingga, tapi ia kalah cepat. Selisih beberapa detik saja, namun rasanya seperti kalah dalam sebuah perlombaan panjang. Di matanya, bubur yang tadi terasa "menyatu" kini mendadak kehilangan rasanya.
 
 "Yuk, Jingga. Bareng ke kampus? Aku bawa motor, sekalian kita bahas layout foto buat rubrik minggu depan," ajak Raka. Jingga melirik ke arah Biru sebentar, ada binar ragu yang tertangkap oleh Biru. "Aku..." "Duluan aja, Jingga. Aku masih mau di sini sebentar," potong Biru datar. Suaranya kembali formal, kembali membangun tembok yang tadi sempat runtuh.
 
-Dan di antara suara warung yang kembali ramai, langkah mahasiswa yang datang dan pergi, serta panggilan penjual yang tak berhenti, ada sesuatu yang tidak diucapkan tapi sama-sama dipahami: bahwa beberapa hal tidak lagi perlu diperdebatkan soal benar atau salah. Karena sudah berubah menjadi kebiasaan. Dan kebiasaan, sering kali, adalah bentuk paling sunyi dari kedekatan.
+Dan di antara suara warung yang kembali ramai, langkah mahasiswa yang datang dan pergi, serta panggilan penjual yang tak berhenti, ada sesuatu yang tidak diucapkan tapi sama-sama dipahami: bahwa beberapa hal tidak lagi perlu diperdebatkan soal benar atau salah. Karena sudah berubah menjadi kebiasaan. Dan kebiasaan, sering kali, adalah bentuk paling sunyi dari sebuah kedekatan.
 
 #
 

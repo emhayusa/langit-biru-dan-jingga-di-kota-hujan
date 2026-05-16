@@ -1084,13 +1084,13 @@ Hening kembali turun. Hujan mengisi ruang yang tidak berani diisi oleh keberania
 
 Jingga mengangguk kecil. “Aku tahu.” Dan justru itu yang membuatnya semakin rumit. Karena ini bukan tentang niat, melainkan tentang keberadaan yang tidak pernah utuh. Jingga menatap Biru lama, matanya tidak memancarkan kemarahan, melainkan kelelahan yang luar biasa.
 
-“Aku tanya sekali lagi, Mas…” Jingga berhenti sebentar, memastikan dirinya tidak mundur. “Kalau kamu masih punya seseorang di kepala kamu… bilang aja sekarang.”
+“Aku tanya sekali lagi, Mas…” Jingga berhenti sebentar, memastikan dirinya tidak mundur. “Kalau kamu masih punya seseorang di kepala kamu… Ungkapkan saja sekarang.”
 
 Nama Larasati Nirmala tidak disebut, namun keduanya tahu nama itu sedang berdiri di antara mereka. Biru membeku. Di kepalanya, suara Laras di perpustakaan SMA Semarang kembali terngiang, memperingatkan agar jangan sampai kota baru membuatnya lupa cara untuk pulang.
 
 Biru langsung menggeleng. “Nggak ada.” Jawaban itu keluar terlalu cepat, terlalu rapi, dan lahir dari ketakutan untuk kehilangan sesuatu yang bahkan belum sempat ia definisikan dengan benar.
 
-Jingga menghela napas panjang, sebuah tanda menyerah pada sesuatu yang tidak bisa ia menangkan. “Mas Biru… Tahu nggak yang paling capek dari semua ini? Bukan kamu yang diam. Bukan kamu yang lambat. Tapi aku yang selalu menunggu sesuatu yang kamu sendiri belum selesai jelasin.”
+Jingga menghela napas panjang, sebuah tanda menyerah pada sesuatu yang tidak bisa ia menangkan. “Mas Biru… Tahu nggak yang paling capek dari semua ini? Bukan kamu yang diam. Bukan kamu yang lambat. Tapi aku yang selalu menunggu sesuatu yang kamu sendiri belum selesai dan sanggup jelasin.”
 
 Hujan turun lebih deras, seolah ikut menguatkan kalimat itu. Biru akhirnya bicara, suaranya nyaris tenggelam. “Aku nggak mau kamu ngerasa sendirian di sini.”
 
@@ -1102,7 +1102,7 @@ Biru menatapnya, kali ini tidak menghindar. “Aku tahu. Aku cuma… belum seles
 
 Hening panjang menyelimuti halte. Jingga tersenyum kecil, sebuah senyum yang sudah menerima kenyataan pahit. “Itu jawaban paling jujur yang pernah kamu kasih ke aku.” Ia memakai helmnya perlahan, seolah setiap detik memiliki bebannya sendiri.
 
-Sebelum menaiki motornya, Jingga menoleh sekali lagi. “Mas Biru… Kalau kamu belum selesai sama dirimu sendiri, jangan mulai sesuatu yang bikin orang lain ikut kehilangan arah.”
+Sebelum menaiki motornya, Jingga menoleh sekali lagi. “Mas Biru… Kalau kamu belum selesai sama dirimu sendiri, jangan memulai sesuatu yang bikin orang lain ikut kehilangan arah.”
 
 Tidak ada amarah dalam suaranya, hanya batas tegas yang akhirnya ditarik. Mesin motor dinyalakan, suaranya bercampur dengan derasnya hujan. Jingga pergi tanpa menoleh lagi. Lampu motornya mengecil di tikungan Jalan Otista, lalu hilang ditelan kabut malam Bogor.
 

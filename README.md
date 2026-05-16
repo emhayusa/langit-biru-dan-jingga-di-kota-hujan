@@ -756,23 +756,23 @@ Malam itu ia tidak sedang memilih antara masa lalu dan masa depan; ia sedang mul
 
 # **11 — Jalan Otista, Kosan Jingga**
 
-Hujan sudah berhenti, tapi udara Bogor masih menyisakan dingin yang tidak sepenuhnya pergi. Di kamar kos kecil di Jalan Otista itu, Jingga Maharani duduk bersandar di kepala ranjang dengan ponsel di tangan. Layar putihnya memantulkan wajah yang terlihat tenang, tapi tidak benar-benar diam di dalam.
+Hujan sudah berhenti, tapi udara Bogor masih menyisakan dingin yang tidak sepenuhnya pergi. Di kamar kos kecil di Jalan Otista itu, Jingga Maharani duduk bersandar di kepala ranjang dengan ponsel di tangan. Layar putihnya memantulkan wajah yang terlihat tenang, tapi tidak benar-benar terlihat diam di dalam.
 
 Jarinya berhenti di atas kolom pesan. Untuk beberapa detik, ia hanya menatap nama itu: Biru Aji Pratama. Lalu ia mengetik pelan, sebuah kalimat yang ia susun agar terdengar seformal mungkin, seolah-olah ia sedang membangun tembok untuk melindungi hatinya sendiri:
 
-“Mas Biru, besok ada presentasi rubrik koran kampus. jangan lupa ya.” — Jingga
+“Mas Biru, besok ada presentasi rubrik koran kampus. Jangan lupa ya!.”
 
 Pesan terkirim. Sederhana. Formal. Seolah tidak ada apa-apa di baliknya. Tapi Jingga tahu, tidak ada pesan yang benar-benar “sekadar pesan”. Ia meletakkan ponselnya di samping, lalu menarik napas pelan. Matanya menatap langit-langit kamar yang sedikit menguning di sudutnya.
 
-Di antara sunyi itu, ingatannya perlahan bergeser ke masa lalu. Bogor saat itu baru saja selesai menangis. Jingga menatap satu nama yang baru ia dapat dari daftar kontak sekretariat koran kampus: Biru Aji Pratama — Fisika. Ia tidak mengenalnya secara dekat, hanya pertemuan singkat yang menyisakan kesan tentang sosok "Mas-mas Jawa" yang kaku. Tanpa alasan penting, jarinya mengetik sebuah kalimat iseng:
+Di antara sunyi itu, ingatannya perlahan bergeser ke masa lalu. Bogor saat itu baru saja selesai menyelesaikan tangisannya. Jingga menatap satu nama yang baru ia dapat dari daftar kontak sekretariat koran kampus: Biru Aji Pratama — Fisika. Ia tidak mengenalnya secara dekat, hanya pertemuan singkat yang menyisakan kesan tentang sosok "Mas-mas Jawa" yang kaku. Tanpa alasan penting, jarinya mengetik sebuah kalimat iseng:
 
-“Mas Jawa, besok jangan lupa bawa payung. Bogor gak suka orang keras kepala. \- Jingga”
+“Mas Jawa, besok jangan lupa bawa payung. Bogor gak suka orang murung. \- Jingga”
 
-Kalimat itu terlalu ringan untuk dianggap serius, tapi sudah terlanjur jatuh ke dunia orang lain. Kembali ke waktu sekarang, Jingga menyadari bahwa hal-hal kecil seperti pesan itu tidak pernah meminta izin untuk tumbuh. Seperti hujan yang datang tanpa bertanya apakah kita siap basah. Seperti pesan singkat yang awalnya hanya iseng, tapi kemudian menetap di kepala.
+Kalimat itu terlalu ringan untuk dianggap serius, tapi sudah terlanjur jatuh ke dunia orang lain. Kembali ke waktu sekarang, Jingga menyadari bahwa hal-hal kecil seperti pesan itu tidak pernah meminta izin untuk tumbuh. Seperti hujan yang datang tanpa bertanya apakah kita siap basah. Seperti pesan singkat yang awalnya hanya iseng, tapi kemudian menetap di kepala dan hati.
 
-Ia menutup mata sebentar. Sesuatu yang lama kembali muncul—bukan tentang Biru, tapi tentang rumah. Tentang jarak yang tidak terlihat tapi terasa setiap hari. Tentang ayahnya yang pergi ketika Jingga masih terlalu kecil untuk mengerti bahwa “pergi” orang dewasa tidak selalu dimulai dengan kata selamat tinggal. Ibunya bertahan, tetapi bukan sebagai pemenang; ia hanya berdiri karena tidak punya pilihan lain. Di rumah itu, Jingga belajar bahwa untuk bertahan, ia harus terlihat baik-baik saja. Harus terlihat ringan dan ceria agar beban rumah tidak semakin berat.
+Ia menutup mata sebentar. Sesuatu yang lama kembali muncul—bukan tentang Biru, tapi tentang rumah. Tentang jarak yang tidak terlihat tapi terasa setiap hari. Tentang ayahnya yang pergi ketika Jingga masih terlalu kecil untuk mengerti bahwa “pergi” nya orang dewasa tidak selalu dimulai dengan kata selamat tinggal. Ibunya bertahan, tetapi bukan sebagai pemenang; ia hanya berdiri karena tidak punya pilihan lain. Di rumah itu, Jingga belajar bahwa untuk bertahan, ia harus terlihat baik-baik saja. Harus terlihat ringan dan ceria agar beban rumah tidak semakin terasa berat.
 
-Ia membangun kebiasaan tertawa di waktu yang tepat dan bercanda saat suasana sunyi, menyembunyikan keretakan jiwanya agar tidak disaksikan orang lain. Baginya, pulih menuntutnya untuk kembali menaruh kepercayaan, dan percaya adalah sebuah pertaruhan yang harganya terlampau mahal.
+Ia membangun kebiasaan tertawa di waktu yang tepat dan bercanda saat suasana sunyi, menyembunyikan keretakan jiwanya agar tidak sempat disaksikan orang lain. Baginya, pulih menuntutnya untuk kembali menaruh kepercayaan, dan percaya adalah sebuah pertaruhan yang harganya terlampau mahal.
 
 Pintu kamar kosnya diketuk pelan. Salsa, sahabatnya sejak SMA, masuk membawa bungkusan martabak.
 
@@ -794,7 +794,7 @@ Layar ponsel di samping Jingga tiba-tiba bergetar. Satu notifikasi masuk.
 
 Biru Aji Pratama: "Iya."
 
-Hanya satu kata. Tanpa penjelasan, tanpa tanya balik. Jingga tersenyum getir. Di titik ini, ia menyadari bahwa ia mungkin tidak sedang kehilangan Biru—ia sedang menyadari bahwa ia mungkin tidak pernah benar-benar memilikinya sejak awal. Ia teringat kata-kata dalam surat yang pernah ia lihat di tangan Biru: "Jangan sampai kota baru membuatmu lupa caramu untuk pulang."
+Hanya satu kata. Tanpa penjelasan, tanpa tanya balik. Jingga tersenyum getir. Di titik ini, ia menyadari bahwa ia mungkin tidak sedang kehilangan Biru—ia sedang menyadari bahwa ia mungkin tidak pernah benar-benar memilikinya sejak awal. Ia teringat kata-kata dalam suatu surat yang pernah ia lihat di tangan Biru: "Jangan sampai kota baru membuatmu lupa caramu untuk pulang."
 
 Jingga merasa ia bukan "jalan pulang" Biru. Ia hanyalah halte sementara bagi seseorang yang belum selesai dengan masa lalunya sendiri. Di luar, angin Jalan Otista kembali bertiup kencang, membawa aroma tanah basah yang kini terasa lebih dingin dari biasanya.
 

@@ -488,7 +488,7 @@ Laras langsung tertawa. “Berarti iya.”
 
 “Kesimpulanmu ngawur aja.”
 
-Biru memejamkan mata. Ia menyebut Jingga "berisik" bukan karena terganggu, tapi sebagai mekanisme pertahanan agar Laras tidak curiga bahwa suara itulah yang belakangan ini justru lebih sering menyelamatkannya dari kesunyian kosan. Ada rasa bersalah yang menusuk saat menyadari ia baru saja memperkenalkan nama Jingga ke dalam ruang personalnya bersama Laras.
+Biru memejamkan mata. Ia menyebut Jingga "berisik" bukan karena terganggu, tapi sebagai mekanisme pertahanan agar Laras tidak curiga bahwa suara itulah yang belakangan ini justru lebih sering menyelamatkannya dari kesunyian kosan. Ada rasa bersalah yang menusuk saat menyadari ia baru saja memperkenalkan sosok perempuan lain ke dalam ruang personalnya bersama Laras.
 
 Di ujung telepon, sebelum ditutup, Laras berkata pelan: “Ru… jangan lupa pulang.”
 
@@ -498,7 +498,7 @@ Telepon berakhir pukul 22.13. Biru keluar dari wartel sambil menarik jaketnya ra
 
 “Mas Jawa, besok jangan lupa bawa payung. Bogor gak suka orang murung. \- Jingga”
 
-Biru berhenti melangkah. Ia menatap layar ponselnya, membaca ulang pesan itu. Senyumnya muncul tanpa izin, dan itu terasa menakutkan bagi Biru. Jika suara Laras adalah "pulang"—gaya statis yang menahannya pada akar—maka pesan Jingga adalah gaya dinamis yang mulai menggeser posisinya. Malam itu, ia menyadari bahwa ia tidak hanya menunggu telepon pukul sepuluh malam dari Solo, tapi juga mulai menantikan getar ponsel dari nomor yang "berisik" itu.
+Biru berhenti melangkah. Ia menatap layar ponselnya, membaca ulang pesan itu. Senyumnya muncul tanpa izin, dan itu terasa menakutkan bagi Biru. Jika suara Laras adalah "pulang"—gaya statis yang menahannya pada akar—maka pesan Jingga adalah gaya dinamis yang mulai menggeser posisinya. Malam itu, ia menyadari bahwa ia tidak hanya menanti kesempatan telepon murah pukul sepuluh malam ke Solo, tapi juga mulai menantikan getar ponsel dari nomor yang "berisik" itu.
 
 Bogor mungkin sedang perlahan mengubah sesuatu di dalam dirinya.
 

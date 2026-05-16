@@ -854,7 +854,7 @@ Dan di antara suara warung yang kembali ramai, langkah mahasiswa yang datang dan
 
 Pagi di Bogor tidak pernah benar-benar bersih dari sisa hujan semalam. Udara selalu membawa aroma tanah basah, seperti halaman buku yang baru saja dibuka setelah lama disimpan. Hari itu, Biru Aji Pratama berdiri di gerbang Kebun Raya Bogor, menunggu seseorang yang sudah membuatnya datang lebih cepat dari biasanya.
 
-“Kalau kamu telat lagi, aku masuk sendiri ya,” gumam Biru pelan, setengah bercanda pada dirinya sendiri.
+“Kalau sampe kamu telat lagi, aku masuk sendiri ya,” gumam Biru pelan, setengah bercanda pada dirinya sendiri.
 
 “Dan kamu bakal nyasar di antara ribuan pohon,” suara itu muncul dari belakangnya.
 
@@ -866,7 +866,7 @@ Sementara dari arah lain, seorang laki-laki melambaikan tangan ke Biru. Itu Fikr
 
 “Ekspedisi apanya?” Jingga menoleh.
 
-“Ekspedisi mencari orang yang bilang ‘aku cuma sebentar’ tapi hilang tiga jam,” jawab Fikri cepat, melirik Biru yang hanya bisa menghela nafas pelan.
+“Ekspedisi mencari orang yang bilang ‘aku cuma pergi sebentar aja’ tapi nyatanya menghilang selama tiga jam,” jawab Fikri cepat, melirik Biru yang hanya bisa menghela nafas pelan.
 
 Mereka akhirnya masuk bersama. Di dalam Kebun Raya, jalan setapak membelah ruang hijau yang terasa tak ada habisnya. Pohon-pohon besar berdiri seperti penjaga waktu. Suara burung dan langkah kaki bercampur dengan tawa kecil.
 
@@ -876,23 +876,23 @@ Mereka akhirnya masuk bersama. Di dalam Kebun Raya, jalan setapak membelah ruang
 
 Fikri langsung menyela, merasa mendapat panggung. “Nah, ini yang aku suka. Jadi gini… dulu, waktu masa kolonial, Kebun Raya ini dibangun di era Hindia Belanda, ketika Batavia terasa terlalu panas dan ramai. Lalu dibuatlah tempat ini di Buitenzorg—nama lama dari Bogor. Katanya, gubernur jenderal waktu itu sering datang ke sini untuk menyepi, jauh dari hiruk-pikuk Batavia”.
 
-Biru menatap pohon di depannya. “Jadi ini tempat orang-orang yang ingin diam dari dunia.”
+Biru menatap pohon di depannya. “Jadi ini tempat orang-orang yang ingin diam dari bising dunia?”
 
-Fikri mengangguk. “Kurang lebih begitu. Tapi sekarang jadi tempat orang-orang yang justru ingin mencari sesuatu—entah ketenangan, atau… alasan”.
+Fikri mengangguk kecil, mengembuskan napas panjang. “Bisa dibilang begitu. Tapi sekarang, tempat ini juga sepertinya jadi tempat pelarian buat orang-orang yang bingung mau mencari apa—entah benar-benar butuh ketenangan, atau cuma butuh alasan buat kabur sebentar".
 
 Kalimat itu menggantung. Jingga menoleh ke Biru, tapi Biru melihat ke arah lain. Mereka berhenti di sebuah taman terbuka. Salsa dan Fikri sengaja memilih duduk di bangku kayu yang agak jauh, memberikan ruang bagi Biru dan Jingga.
 
 “Dulu kamu bilang mau ngajak aku keliling sini,” kata Jingga pelan.
 
-“Aku ingat. Sekarang aku ada di sini”.
+“Aku ingat. Sekarang kita ada di sini”.
 
-Jingga menatapnya lama. “Aneh ya. Tempat yang dibuat untuk orang-orang yang ingin menyepi… malah jadi tempat kita ketemu.”
+Jingga menatapnya lama. “Aneh ya. Tempat yang dibuat untuk orang-orang yang ingin menyepi… malah jadi tempat kita bertemu.”
 
 Biru menoleh, menatap wajah Jingga yang terpapar cahaya jingga. “Mungkin karena menyepi itu tidak selalu berarti sendiri.” Di kepalanya, ia mendadak teringat Raka, senior redaksi yang tempo hari begitu sigap memberikan perhatian pada Jingga.
 
 Sore menjelang ketika mereka sampai di jalur pepohonan besar. Fikri dan Salsa sudah berjalan jauh di depan.
 
-“Kalau suatu hari kamu pergi jauh,” kata Jingga tiba-tiba, “kamu bakal bilang nggak?”.
+“Kalau suatu hari kamu pergi jauh,” kata Jingga tiba-tiba, “kamu bakal bilang dan ngasih tahu aku nggak?”.
 
 Biru berhenti sebentar. Pertanyaan itu terasa seperti hantaman. Ia teringat amplop coklat dari ibunya dan surat untuk Laras yang masih terlipat rapi di buku agendanya.
 
@@ -900,7 +900,7 @@ Biru berhenti sebentar. Pertanyaan itu terasa seperti hantaman. Ia teringat ampl
 
 “Tapi kamu selalu nggak bilang hal yang paling penting,” balas Jingga dengan senyum getir.
 
-Dari kejauhan, suara Salsa melengking. “Woi\! Malah berduaan\! Jingga, Kak Raka barusan telepon, katanya ada perubahan layout buat besok\!”.
+Dari kejauhan, suara Salsa melengking. “Woi\! Jangan berduaan mulu\! Jingga, Kak Raka barusan telepon, katanya ada perubahan layout buat besok\!”.
 
 Nama itu, Raka, menggantung di udara seperti awan mendung. Biru melihat Jingga merespons dengan anggukan kecil, lalu kembali menatapnya—menunggu sebuah reaksi yang kembali Biru simpan di balik dadanya.
 
@@ -908,9 +908,9 @@ Dan di antara pohon-pohon itu, ada sesuatu yang mulai tumbuh pelan-pelan, sepert
 
 “Ini spot yang bagus buat foto,” kata Salsa tiba-tiba.
 
-“Model apa kamu?” Jingga menahan tawa saat Fikri bergaya.
+“Model apa kamu?” Jingga menahan tawa saat Fikri mulai bergaya.
 
-“Model korban tugas lab hortikultura.”
+“Model korban tugas lab elektronika!”
 
 Foto pertama: berempat. Mereka berdiri agak canggung. Salsa di paling kiri, Fikri di sebelahnya. Jingga berdiri di sebelah Biru, tapi tidak terlalu dekat. Masih ada jarak kecil yang tidak disadari kamera.
 
@@ -926,7 +926,7 @@ Setelah itu, Fikri dan Salsa mulai berjalan menjauh dengan alasan mencari "angle
 
 “Kayaknya mereka sengaja ninggalin kita,” kata Jingga.
 
-“Kelihatan jelas,” jawab Biru.
+“Kelihatan banget,” jawab Biru.
 
 “Kalau kita foto juga… nanti dikira apa?”
 
@@ -938,7 +938,7 @@ Untuk pertama kalinya hari itu, Biru tertawa kecil.
 
 Foto kedua: berdua. Mereka berdiri lebih dekat, tapi dengan jarak yang hati-hati. Jingga mengatur kamera, tangannya sedikit bergetar.
 
-“Latar belakangnya Istana Bogor ya,” kata Jingga pelan. “Kayak… saksi diam.”
+“Latar belakangnya Istana Bogor ya,” kata Jingga pelan. “Kayak… jadi saksi biksu.”
 
 Biru mengangguk.
 
@@ -954,7 +954,7 @@ Klik. Foto itu selesai. Ada jeda kecil yang aneh—seolah keduanya enggan mengak
 
 Biru melihat layar. Foto itu sederhana: dua orang berdiri di tepi danau dengan cahaya sore yang menyatukan mereka. “Bagus,” kata Biru singkat.
 
-Dari kejauhan, suara Fikri berteriak, “Kalau kalian foto mesra, jangan lupa kirim ke milis email\! Biar aku bisa ikut jadi saksi sejarah\!”
+Dari kejauhan, suara Fikri berteriak, “Kalau kalian foto mesra berdua, jangan lupa kirim ke milis email grup kita\! Biar aku bisa ikut jadi saksi sejarah\!”
 
 Jingga menutup wajah setengah malu, sementara telinga Biru sedikit merah.
 

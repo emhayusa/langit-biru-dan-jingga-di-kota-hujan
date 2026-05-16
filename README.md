@@ -716,9 +716,9 @@ Jingga berjalan beberapa langkah, lalu berhenti. Ia menoleh. “Mas Biru… Kala
 
 Pertanyaan itu sederhana. Tapi bagi Biru, cara Jingga mengucapkannya seperti variabel baru yang tiba-tiba muncul di tengah soal yang sudah hampir selesai. Biru terdiam cukup lama. Izin ini bukan sekadar izin berteman; ini adalah keputusan sadar untuk membiarkan Jingga masuk ke dalam rumus hidupnya yang selama ini ia paksa statis untuk Laras.
 
-Lalu pelan: “Boleh.”
+Lalu menjawab pelan: “Boleh.”
 
-Jingga tersenyum kecil. Tapi kali ini ada sesuatu yang berbeda. Bukan sekadar ceria. Ia berjalan pergi.
+Jingga tersenyum kecil. Tapi kali ini ada sesuatu yang berbeda. Bukan hanya sekadar terasa ceria. Ia lalu berjalan pergi menuju kelas mata kuliahnya.
 
 Biru kembali duduk sendirian di kantin. Hujan masih turun di luar. Dan untuk pertama kalinya, ia sadar sesuatu yang tidak pernah diajarkan di Fisika Dasar: tidak semua sistem bisa dijelaskan dengan rumus. Dan tidak semua yang dekat bisa dianggap kebetulan saja.
 

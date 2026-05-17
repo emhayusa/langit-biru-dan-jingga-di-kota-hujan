@@ -1158,7 +1158,7 @@ Raka meletakkan secangkir kopi di meja Jingga tanpa bertanya, sebuah tindakan ke
 
 Setelah keluar dari gedung redaksi, Biru benar-benar menghilang ke dalam dunianya. Ia membangun "goa" isolasi di laboratorium fisika atau di sudut kamarnya yang sempit. Ia menenggelamkan dirinya dalam tumpukan data simulasi dan perhitungan gaya gesek, mencoba merasionalkan rasa sakitnya menjadi variabel-variabel yang bisa dihitung. Fikri, sahabat sekosnya, seringkali datang membawakan makanan dan peringatan agar ia tidak terus-menerus "menampung segalanya tanpa boleh tumpah".
 
-"Ru, laptop bisa diperbaiki kalau kena air, tapi hati perempuan kalau sudah beku susah kembali cair," bisik Fikri suatu sore di sela kesibukan Biru.
+"Ru, bersembunyi di laboratorium tidak akan mengurangi koefisien rasa bersalahmu. Menghindar hanya membuat masalahmu makin membeku," bisik Fikri suatu sore di sela kesibukan Biru.
 
 Biru hanya diam. Di kepalanya, nama Larasati Nirmala muncul kembali sebagai pola yang tidak pernah ia pecahkan. Seseorang yang dulu tidak ia kejar cukup jauh di Surakarta, dan kini, seseorang lain yang baru saja ia biarkan menjauh tanpa ia hentikan di Bogor.
 
